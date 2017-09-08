@@ -18,8 +18,9 @@ tuyệt đối, hoàn toàn tự do hoạt động về lao động, tiền bạ
 những giới hạn tối thiểu cần thiết để bảo đảm người dân được tự do". Hay nó là "môi trường tối đa hóa quyền tự do lựa chọn trong kinh 
 tế, công bằng cơ hội tuyệt đối của mỗi thành phần kinh tế".
 
-Có nhiều cách định chuẩn hóa để đo đạc độ "tự do kinh tế", một trong những cách đó là thông qua [Chỉ số tự do kinh tế]
-(http://www.heritage.org/index/ranking) thông qua các tiêu chí con là sự hợp pháp của quyền tư hữu, tính liêm khiết (không tham 
+Có nhiều cách định chuẩn hóa để đo đạc độ "tự do kinh tế", một trong những cách đó là thông qua 
+[Chỉ số tự do kinh tế](http://www.heritage.org/index/ranking)
+thông qua các tiêu chí con là sự hợp pháp của quyền tư hữu, tính liêm khiết (không tham 
 nhũng) của chính phủ, độ nhỏ của ngân sách (chi tiêu công và thuế tính theo % GDP), tự do lựa chọn trong kinh doanh, tự do lựa chọn 
 trong lao động, tự do lựa chọn trong tiền tệ , tự do thương mại, tự do lựa chọn trong đầu tư, tự do lựa chọn trong tài chính.
 
