@@ -1,3 +1,3 @@
 # ThinhPhamMapMap.github.io
 
-Bookmarks và blogs của ThinhPham.
+Bookmarks và blog của ThinhPham.
