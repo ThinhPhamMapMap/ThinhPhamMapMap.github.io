@@ -1,5 +1,3 @@
-# ThinhPham tudokinhte canhhuu
-
 ## Khái niệm tự do kinh tế và ai là người không ủng hộ tự do kinh tế
 
 Nhóm chúng ta bàn khá nhiều về "tự do kinh tế" nhưng dường như chẳng ai nói rõ "tự do kinh tế" là cái gì, tiêu chí đạt được là gì, đo 
