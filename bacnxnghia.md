@@ -36,4 +36,4 @@
 
 [170914. Giờ Giải Ảo. Phản chiến, ngụy hòa, và công trình giải ảo của Giáo sư Keith W. Taylor cùng bà Olga Dror.](https://www.youtube.com/watch?v=STEC8CZXsc4)
 
-
+[170918. Tổng thống Donald Trump kêu gọi cải tổ Liên Hợp Quốc. Bình luận về trò bịp trong phim The Vietnam War của Ken Burns. Vụ xung đột ở Miến Điện với sắc dân Bengali/Rohingya. Bất ổn ở Đông Á và sự thật về Hồ Chí Minh.](https://www.youtube.com/watch?v=yhtzFsWkCIw)
