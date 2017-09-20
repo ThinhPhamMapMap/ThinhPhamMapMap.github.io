@@ -39,3 +39,5 @@
 [170918. Tổng thống Donald Trump kêu gọi cải tổ Liên Hợp Quốc. Bình luận về trò bịp trong phim The Vietnam War của Ken Burns. Vụ xung đột ở Miến Điện với sắc dân Bengali/Rohingya. Bất ổn ở Đông Á và sự thật về Hồ Chí Minh.](https://www.youtube.com/watch?v=yhtzFsWkCIw)
 
 [170919. Bão Maria. Sự thay đổi liên tục của nền sản xuất Hoa Kỳ. Diễn văn của tổng thống Donald Trump đọc trước Liên Hợp Quốc. Vấn đề Bắc Hàn. Vụ sứ quán Hoa Kỳ ở Cuba. Suy ngẫm về vận mệnh của Việt Nam.](https://www.youtube.com/watch?v=H-dDkIktOno)
+
+[170920. Chuyện bão tại Hoa Kỳ. Hằng tâm, hằng sản của người Mỹ. Quyết định của dân biểu. Lạc quan tếu, hốt hoảng bậy. Phân tích chính trường Hoa Kỳ. Diễn văn của tổng thống Donald Trump tại Liên Hiệp Quốc. Chuyện Việt Nam, ngu và dốt. Nước Mỹ không hiểu nhiều về thế giới bên ngoài.](https://www.youtube.com/watch?v=9sMOOOm1xiE)
