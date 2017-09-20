@@ -1,5 +1,9 @@
 # Cập Nhật Thời Sự và Giờ Giải Ảo của bác Nguyễn Xuân Nghĩa trên Youtube.
 
+
+
+==============================================================================================
+
 [170819. Steve Bannon giải nhiệm. Xứ Iran. Vấn đề Bắc Hàn. Món nợ chìm ở Tàu Cộng.](https://www.youtube.com/watch?v=adjKPMG6SUI)
 
 [170820. Steve Bannon giải nhiệm tiếp theo. Vấn đề Bắc Hàn. Lịch sử về thời Thập Tự Chinh. Hồ sơ BOT ở Việt Nam.](https://www.youtube.com/watch?v=ZzMe90vzYXk)
