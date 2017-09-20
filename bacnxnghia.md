@@ -1,8 +1,13 @@
 # Cập Nhật Thời Sự và Giờ Giải Ảo của bác Nguyễn Xuân Nghĩa trên Youtube.
 
+------
+
+Các video bên dưới chia làm 2 phần:
+1. Cập nhật thời sự: Phần này có tiêu đề bắt đầu với ngày tạo ra video. Theo sau là tên cho tiêu đề.
+2. Giờ Giải Ảo: Bắt đầu với ngày, sau đó là cụm từ "Giờ Giải Ảo".
 
 
-==============================================================================================
+------
 
 [170819. Steve Bannon giải nhiệm. Xứ Iran. Vấn đề Bắc Hàn. Món nợ chìm ở Tàu Cộng.](https://www.youtube.com/watch?v=adjKPMG6SUI)
 
