@@ -1,5 +1,3 @@
-Bookmarks của Thịnh Phạm
-
 Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Xin cảm ơn.
 =========
 
@@ -3642,7 +3640,7 @@ Bookmarks của Thịnh Phạm
 
 [Chúng mày sồn sồn cái con cặc gì thế. Trump đâu phải là người Hồi Giáo đâu. mượn từ Geert Wilders](https://www.facebook.com/kubua1989/posts/1690818641233464)
 
-[“Hồi Giáo hóa” Paris: Một cảnh báo cho Tây Phương và nước Mỹ | GIA ĐÌNH NAZARETH](http://www.giadinhnazareth.org/node/1470)
+[“Hồi Giáo hóa” Paris: Một cảnh báo cho Tây Phương và nước Mỹ.](http://www.giadinhnazareth.org/node/1470)
 
 [I had no Idea how bad Islam was until I dated a Muslim. Pamela Geller](http://pamelageller.com/2014/05/idea-bad-islam-dated-muslim.html/)
 
@@ -3750,7 +3748,7 @@ Bookmarks của Thịnh Phạm
 
 [Mô hình phúc lợi. Các mô hình phúc lợi theo mức độ tự do lựa chọn.](https://www.facebook.com/thinhpham.univ.tours/posts/1355675181116437)
 
-[(WARNING: Graphic) How the Media Exploit — and Omit — Pictures to Islam’s Benefit | raymondibrahim.com](http://www.raymondibrahim.com/2016/05/05/warning-graphic-how-the-media-exploit-and-omit-pictures-to-islams-benefit/)
+[(WARNING: Graphic) How the Media Exploit — and Omit — Pictures to Islam’s Benefit.](http://www.raymondibrahim.com/2016/05/05/warning-graphic-how-the-media-exploit-and-omit-pictures-to-islams-benefit/)
 
 [10 điểm tương đồng giữa Nhà Vua và Nhà Cộng Sản](https://www.facebook.com/cafekubua/posts/917873471679501)
 
@@ -3798,11 +3796,9 @@ Bookmarks của Thịnh Phạm
 
 [10 lý do vì sao Hitler ghét người Do Thái - Cafe Ku Búa](http://cafekubua.com/2016/08/28/10-ly-do-vi-sao-hitler-ghet-nguoi-do-thai/)
 
-[15 Năm Chờ Đợi Chim Di Trú Tập 1 - YouTube](https://www.youtube.com/watch?v=IjepGUQQY1s)
+[20 Câu Hỏi và Trả Lời Về Tư Bản, Thị Trường và Kinh Tế 10/11/2016.](http://www.vietconservative.com/2016/11/20-cau-hoi-va-tra-loi-ve-tu-ban-thi.html)
 
-[20 Câu Hỏi và Trả Lời Về Tư Bản, Thị Trường và Kinh Tế 10/11/2016 | Viet Conservative](http://www.vietconservative.com/2016/11/20-cau-hoi-va-tra-loi-ve-tu-ban-thi.html)
-
-[30 câu nói về Chủ nghĩa xã hội, Chủ nghĩa cộng sản và Chủ nghĩa tư bản: | www.cuuhocsinhphuyen.com](https://cuuhocsinhphuyencom.wordpress.com/2016/07/10/30-cau-noi-ve-chu-nghia-xa-hoi-chu-nghia-cong-san-va-chu-nghia-tu-ban/)
+[30 câu nói về Chủ nghĩa xã hội, Chủ nghĩa cộng sản và Chủ nghĩa tư bản.](https://cuuhocsinhphuyencom.wordpress.com/2016/07/10/30-cau-noi-ve-chu-nghia-xa-hoi-chu-nghia-cong-san-va-chu-nghia-tu-ban/)
 
 [30 danh ngôn của Fidel Castro - Cafe Ku Búa](http://cafekubua.com/2016/11/28/30-danh-ngon-cua-fidel-castro/)
 
@@ -3812,13 +3808,13 @@ Bookmarks của Thịnh Phạm
 
 [5 Facts About 'Black Oppression' Colin Kaepernick Needs to Know](http://www.breitbart.com/sports/2016/09/02/five-facts-about-black-oppression-colin-kaepernick-needs-to-know/?utm_source=facebook&utm_medium=social)
 
-[5 giá trị dựng lên Đảng Cộng Hòa | Viet Conservative](http://www.vietconservative.com/2016/11/5-gia-tri-dung-len-ang-cong-hoa.html)
+[5 giá trị dựng lên Đảng Cộng Hòa.](http://www.vietconservative.com/2016/11/5-gia-tri-dung-len-ang-cong-hoa.html)
 
 [5 lý do vì sao CNXH lại thu hút người dân - Cafe Ku Búa](http://cafekubua.com/2016/10/12/5-ly-do-vi-sao-cnxh-lai-thu-hut-nguoi-dan/)
 
 [5 ngộ nhận thường gặp về chủ nghĩa tư bản - Cafe Ku Búa](http://cafekubua.com/2016/01/17/5-ngo-nhan-thuong-gap-ve-chu-nghia-tu-ban/)
 
-[5 Sản Phẩm Photoshop Lỗi của Trung Quốc | Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=zX9L3xht4y4)
+[5 Sản Phẩm Photoshop Lỗi của Trung Quốc.](https://www.youtube.com/watch?v=zX9L3xht4y4)
 
 [5 vấn đề hàng đầu người Mỹ da đen đang đối mặt - Cafe Ku Búa](http://cafekubua.com/2016/09/23/5-van-de-hang-dau-nguoi-my-da-den-dang-doi-mat/)
 
@@ -3842,11 +3838,11 @@ Bookmarks của Thịnh Phạm
 
 [About Robert Spencer](https://www.jihadwatch.org/about-robert)
 
-[Adam Smith on Public Policy: Four Maxims of Taxation | Libertarianism.org](http://www.libertarianism.org/columns/adam-smith-public-policy-four-maxims-taxation#.vrlrs8h:rZ8L)
+[Adam Smith on Public Policy: Four Maxims of Taxation.](http://www.libertarianism.org/columns/adam-smith-public-policy-four-maxims-taxation#.vrlrs8h:rZ8L)
 
-[Adam Smith: The Concise Encyclopedia of Economics | Library of Economics and Liberty](http://www.econlib.org/library/Enc/bios/Smith.html)
+[Adam Smith: The Concise Encyclopedia of Economics.](http://www.econlib.org/library/Enc/bios/Smith.html)
 
-[Adam Smith: The Most Misquoted Economist of Our Time | In Veritas Crescentes](https://inveritascrescentes.wordpress.com/2012/02/08/adam-smith-the-most-misquoted-economist-of-our-time/)
+[Adam Smith: The Most Misquoted Economist of Our Time.](https://inveritascrescentes.wordpress.com/2012/02/08/adam-smith-the-most-misquoted-economist-of-our-time/)
 
 [AI ĐÃ BỊ CHÉM THỜI ÔNG DIỆM?](https://www.facebook.com/saigonpaper/posts/741164115960412)
 
@@ -3884,7 +3880,7 @@ Bookmarks của Thịnh Phạm
 
 [Bầu cử quốc hội 2016: Tự ứng cử hay tẩy chay? (Nguyễn Gia Kiểng)](http://www.ethongluan.org/index.php?option=com_content&view=article&id=22451:b-u-c-qu-c-h-i-2016-t-ng-c-hay-t-y-chay-nguy-n-gia-ki-ng&catid=66:binh-lu-n-th-i-s)
 
-[Bernie Sanders Is a De Facto Millionaire | MONEY](http://time.com/money/4235986/bernie-sanders-millionaire-finances/)
+[Bernie Sanders Is a De Facto Millionaire.](http://time.com/money/4235986/bernie-sanders-millionaire-finances/)
 
 [Bên Kia Màn Khói với ktg Nguyễn Xuân Nghĩa: Tháng tư đen, Khi đồng minh nhảy vào, Apr 23, 2016 - YouTube](https://www.youtube.com/watch?v=u8iQmb5oFeI)
 
@@ -3898,13 +3894,13 @@ Bookmarks của Thịnh Phạm
 
 [Bitcoin và đại khủng hoảng kinh tế - Cafe Ku Búa](http://cafekubua.com/2015/10/21/bitcoin-va-dai-khung-hoang-kinh-te/)
 
-[Blaming the Rape Victim in Dubai | Frontpage Mag](http://www.frontpagemag.com/fpm/197793/blaming-rape-victim-dubai-robert-spencer)
+[Blaming the Rape Victim in Dubai.](http://www.frontpagemag.com/fpm/197793/blaming-rape-victim-dubai-robert-spencer)
 
-[Blog | HumanProgress.org Anti-capitalism has deep roots in human history](http://humanprogress.org/blog/anti-capitalism-history?utm_content=bufferc21b2&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
+[Anti-capitalism has deep roots in human history](http://humanprogress.org/blog/anti-capitalism-history?utm_content=bufferc21b2&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
-[Blog | HumanProgress.org How can the United States help Africa?](http://humanprogress.org/blog/how-can-the-united-states-help-africa?utm_content=buffere1791&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
+[How can the United States help Africa?](http://humanprogress.org/blog/how-can-the-united-states-help-africa?utm_content=buffere1791&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
-[Blog | HumanProgress.org Human Ingenuity Proves to Be the Ultimate Resource Yet Again](http://humanprogress.org/blog/human-ingenuity-proves-to-be-the-ultimate-resource-yet-again?utm_content=buffer3c041&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
+[Human Ingenuity Proves to Be the Ultimate Resource Yet Again](http://humanprogress.org/blog/human-ingenuity-proves-to-be-the-ultimate-resource-yet-again?utm_content=buffer3c041&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
 [Blog: How rich is Bernie Sanders?](http://www.americanthinker.com/blog/2016/02/how_rich_is_bernie_sanders.html)
 
@@ -3982,7 +3978,7 @@ Bookmarks của Thịnh Phạm
 
 [cánh tả tham nhũng BREAKING: Wikileaks Just Burnt The ENTIRE Democratic Party To The Ground! See The Corruption For Yourself! - World News Politics](http://www.worldnewspolitics.com/2016/09/15/breaking-wikileaks-just-burnt-entire-democratic-party-ground-see-corruption/)
 
-[Capital Rivals: Koch Brothers vs. George Soros | OpenSecrets Blog](http://www.opensecrets.org/news/2010/09/opensecrets-battle-koch-brothers/)
+[Capital Rivals: Koch Brothers vs. George Soros](http://www.opensecrets.org/news/2010/09/opensecrets-battle-koch-brothers/)
 
 [capitalism (chủ nghĩa tư bản) là một từ do cánh tả....](https://www.facebook.com/cafekubua/photos/a.658678404265677.1073741827.658658857600965/813158375484345/?type=3&comment_id=813170995483083&comment_tracking=%7B%22tn%22%3A%22R3%22%7D)
 
@@ -3992,7 +3988,7 @@ Bookmarks của Thịnh Phạm
 
 [Capitalism, Socialism, and the Jews - YouTube](https://www.youtube.com/watch?v=ulqBb4JePuQ)
 
-[Capitalism: The Concise Encyclopedia of Economics | Library of Economics and Liberty](http://www.econlib.org/library/Enc/Capitalism.html)
+[Capitalism: The Concise Encyclopedia of Economics.](http://www.econlib.org/library/Enc/Capitalism.html)
 
 [Cato bịp bợm về Hồi giáo](https://www.facebook.com/thinhpham.univ.tours/posts/1449219635095324)
 
@@ -4012,7 +4008,7 @@ Bookmarks của Thịnh Phạm
 
 [Charles Koch: Humility, integrity more important than talent - YouTube](https://www.youtube.com/watch?v=R0O6q-3OQDw)
 
-[Châu Âu trước thử thách giữa tình người và đe dọa khủng bố | VietVungVinh.com](http://www.vietvungvinh.com/2015/10/chau-au-truoc-thu-thach-giua-tinh-nguoi.html)
+[Châu Âu trước thử thách giữa tình người và đe dọa khủng bố.](http://www.vietvungvinh.com/2015/10/chau-au-truoc-thu-thach-giua-tinh-nguoi.html)
 
 [Chỉ có sống thật, không thể sống thử - VnExpress](http://vnexpress.net/tin-tuc/cong-dong/chi-co-song-that-khong-the-song-thu-2228350.html)
 
@@ -4108,9 +4104,9 @@ Bookmarks của Thịnh Phạm
 
 [Constitution Allows Muslim Immigration Ban](http://www.breitbart.com/big-government/2016/08/12/const-allows-muslim-immigrant-ban/)
 
-[Convicted Criminal Soros Spending Millions to Buy District Attorneys | Frontpage Mag](http://www.frontpagemag.com/point/264021/convicted-criminal-soros-spending-millions-buy-daniel-greenfield#.V8YmZGG3Tvc.facebook)
+[Convicted Criminal Soros Spending Millions to Buy District Attorneys.](http://www.frontpagemag.com/point/264021/convicted-criminal-soros-spending-millions-buy-daniel-greenfield#.V8YmZGG3Tvc.facebook)
 
-[Corporate Social Responsibilty: Friedman's View | Becker Friedman Institute](https://bfi.uchicago.edu/news/feature-story/corporate-social-responsibilty-friedmans-view)
+[Corporate Social Responsibilty: Friedman's View.](https://bfi.uchicago.edu/news/feature-story/corporate-social-responsibilty-friedmans-view)
 
 [Counter Jihad Taqiyya, Trust & Debating Shariah](http://counterjihad.com/backgrounder/taqiyya-trust-debating-shariah/)
 
@@ -4128,7 +4124,7 @@ Bookmarks của Thịnh Phạm
 
 [Công ty Offshore là gì? – Trò chơi vỏ bọc bí mật - Cafe Ku Búa](http://cafekubua.com/2016/05/21/6364/)
 
-[Crony Capitalism Vs. Free Market Capitalism—–An Examination Of The Crucial Difference | David Stockman's Contra Corner](http://davidstockmanscontracorner.com/crony-capitalism-vs-free-market-capitalism-an-examination-of-the-crucial-difference/)
+[Crony Capitalism Vs. Free Market Capitalism—–An Examination Of The Crucial Difference.](http://davidstockmanscontracorner.com/crony-capitalism-vs-free-market-capitalism-an-examination-of-the-crucial-difference/)
 
 [CSVN từ chối chuyên gia Mỹ giúp đỡ điều tra cá chết](https://www.youtube.com/watch?v=KVwAJ1k1xLc)
 
@@ -4192,7 +4188,7 @@ Bookmarks của Thịnh Phạm
 
 [disinformation campaign of communist propaganda during the Cold War to discredit the moral authority of the Vatican because of its outspoken anticommunism](https://en.wikipedia.org/wiki/Seat_12)
 
-[Does Black Success Matter? by Dr. Thomas Sowell | Creators Syndicate](https://www.creators.com/read/thomas-sowell/08/16/does-black-success-matter)
+[Does Black Success Matter? by Dr. Thomas Sowell.](https://www.creators.com/read/thomas-sowell/08/16/does-black-success-matter)
 
 [Donald Trump on the Move: His Two Strongest Speeches of the Campaign - Breitbart](http://www.breitbart.com/big-government/2016/08/17/donald-trump-move-two-strongest-speeches-campaign/?utm_source=facebook&utm_medium=social)
 
@@ -4200,7 +4196,7 @@ Bookmarks của Thịnh Phạm
 
 [dựng cờ chính nghĩa TRÊN ĐƯỜNG ĐÔNG TIẾN: Đại Hội Chính Nghĩa](http://trenduongdongtien.blogspot.com/2007/08/ai-hoi-chinh-nghia.html)
 
-[Đã rõ ràng… phía sau Formosa Đài Loan là con rắn độc Trung cộng hiện nguyên hình | THÔNG TIN HAI CHIỀU](https://haiz00.wordpress.com/2016/05/04/da-ro-rang-phia-sau-formosa-dai-loan-la-con-ran-doc-trung-cong-hien-nguyen-hinh/)
+[Đã rõ ràng… phía sau Formosa Đài Loan là con rắn độc Trung cộng hiện nguyên hình.](https://haiz00.wordpress.com/2016/05/04/da-ro-rang-phia-sau-formosa-dai-loan-la-con-ran-doc-trung-cong-hien-nguyen-hinh/)
 
 [Đã sub xong phim Nước Mỹ Của Hillary. Giờ phiền bạn...](https://www.facebook.com/kubua1989/posts/1683204838661511?comment_id=1683212258660769&comment_tracking=%7B%22tn%22%3A%22R4%22%7D)
 
@@ -4232,13 +4228,13 @@ Bookmarks của Thịnh Phạm
 
 [Đừng phán xét người da đen một cách khác biệt - YouTube](https://www.youtube.com/watch?v=IQQsN9af1AQ)
 
-[Economic freedom | Lane Kenworthy](https://lanekenworthy.net/economic-freedom/)
+[Economic freedom.](https://lanekenworthy.net/economic-freedom/)
 
-[Economic Freedom and Economic Growth | Foundation for Economic Education](https://fee.org/articles/economic-freedom-and-economic-growth/)
+[Economic Freedom and Economic Growth. Foundation for Economic Education](https://fee.org/articles/economic-freedom-and-economic-growth/)
 
-[Economic Freedom: The Concise Encyclopedia of Economics | Library of Economics and Liberty](http://www.econlib.org/library/Enc/EconomicFreedom.html)
+[Economic Freedom: The Concise Encyclopedia of Economics. Library of Economics and Liberty](http://www.econlib.org/library/Enc/EconomicFreedom.html)
 
-[Economic Freedom: The Proven Path to Prosperity | 2016 Index of Economic Freedom Book](http://www.heritage.org/index/book/chapter-1)
+[Economic Freedom: The Proven Path to Prosperity. 2016 Index of Economic Freedom Book](http://www.heritage.org/index/book/chapter-1)
 
 [Effect of a Real GDP Increase (Economic Growth) on Interest Rates](http://2012books.lardbucket.org/books/policy-and-theory-of-international-finance/s10-11-effect-of-a-real-gdp-increase-.html#)
 
@@ -4246,13 +4242,13 @@ Bookmarks của Thịnh Phạm
 
 [Emma Watson và ngộ nhận về "Nữ Quyền" - Cafe Ku Búa](http://cafekubua.com/2016/06/11/emma-watson-va-ngo-nhan-ve-nu-quyen/)
 
-[England and Wales: Over 56% of Syrian refugees committed severe crimes in less than a year | Muslim Statistics](https://muslimstatistics.wordpress.com/2016/08/02/england-and-wales-over-56-of-syrian-refugees-committed-severe-crimes-in-less-than-a-year/)
+[England and Wales: Over 56% of Syrian refugees committed severe crimes in less than a year . Muslim Statistics](https://muslimstatistics.wordpress.com/2016/08/02/england-and-wales-over-56-of-syrian-refugees-committed-severe-crimes-in-less-than-a-year/)
 
 [Europe: Let's End Free Speech!](https://www.gatestoneinstitute.org/9311/europe-free-speech)
 
 [European Court of Human Rights on Shari'ah Law - WikiIslam](http://wikiislam.net/wiki/European_Court_of_Human_Rights_on_Shariah_Law)
 
-[F. von Hayek - Vì sao những kẻ xấu xa nhất lại leo cao nhất? | Phạm Nguyên Trường](http://phamnguyentruong.blogspot.com/2014/11/f-von-hayek-vi-sao-nhung-ke-xau-xa-nhat.html)
+[F. von Hayek - Vì sao những kẻ xấu xa nhất lại leo cao nhất? . Phạm Nguyên Trường](http://phamnguyentruong.blogspot.com/2014/11/f-von-hayek-vi-sao-nhung-ke-xau-xa-nhat.html)
 
 [F.A Hayek - Vì sao những kẻ xấu xa nhất lại leo cao nhất? - Cafe Ku Búa](http://cafekubua.com/2016/04/02/f-a-hayek-vi-sao-nhung-ke-xau-xa-nhat-lai-leo-cao-nhat/)
 
@@ -4274,13 +4270,13 @@ Bookmarks của Thịnh Phạm
 
 [Family Security Matters Jihadists Dream of the Caliphate. Here’s What You Need to Know](http://www.familysecuritymatters.org/publications/detail/jihadists-dream-of-the-caliphate-heres-what-you-need-to-know?f=must_reads)
 
-[Fascism: The Concise Encyclopedia of Economics | Library of Economics and Liberty](http://www.econlib.org/library/Enc/Fascism.html)
+[Fascism: The Concise Encyclopedia of Economics . Library of Economics and Liberty](http://www.econlib.org/library/Enc/Fascism.html)
 
-[Fidel Castro Dies: Dictator Who Oppressed People of Cuba | National Review](http://www.nationalreview.com/article/442486/fidel-castro-dies-dictator-oppressed-people-cuba?utm_campaign=trueAnthem:+Trending+Content&utm_content=583a4d9c04d30107ac07ae3c&utm_medium=trueAnthem&utm_source=facebook)
+[Fidel Castro Dies: Dictator Who Oppressed People of Cuba . National Review](http://www.nationalreview.com/article/442486/fidel-castro-dies-dictator-oppressed-people-cuba?utm_campaign=trueAnthem:+Trending+Content&utm_content=583a4d9c04d30107ac07ae3c&utm_medium=trueAnthem&utm_source=facebook)
 
 [Finance: Chapter 40-11: Effect of a Real GDP Increase (i.e., Economic Growth) on Interest Rates](http://internationalecon.com/Finance/Fch40/F40-11.php)
 
-[Five Reasons To Ban the Burqa | Frontpage Mag](http://www.frontpagemag.com/fpm/98263/five-reasons-ban-burqa-daniel-greenfield)
+[Five Reasons To Ban the Burqa . Frontpage Mag](http://www.frontpagemag.com/fpm/98263/five-reasons-ban-burqa-daniel-greenfield)
 
 [Flemming Rose: VƯỢT QUA NỖI SỢ HÃI ĐỂ LỰA CHỌN TỰ DO - Nhịp Cầu Thế Giới Online](http://nhipcauthegioi.hu/Van-hoa/Flemming-Rose-VUOT-QUA-NOI-SO-HAI-DE-LUA-CHON-TU-DO-4953.html)
 
@@ -4292,7 +4288,7 @@ Bookmarks của Thịnh Phạm
 
 [France: Muslim migrant stabs woman and her three daughters for being scantily dressed](https://www.jihadwatch.org/2016/07/france-muslim-migrant-stabs-woman-and-her-three-daughters-for-being-scantily-dressed)
 
-[Free market capitalism and morality | Institute of Economic Affairs](http://www.iea.org.uk/blog/free-market-capitalism-and-morality)
+[Free market capitalism and morality . Institute of Economic Affairs](http://www.iea.org.uk/blog/free-market-capitalism-and-morality)
 
 [Friedrich Hayek - cuộc đời và sự nghiệp](http://www.talawas.org/talaDB/suche.php?res=10728&rb#anm2)
 
@@ -4310,17 +4306,17 @@ Bookmarks của Thịnh Phạm
 
 [Giải Mã Hiện Tượng Donald Trump - Cafe Ku Búa](http://cafekubua.com/2016/03/10/giai-ma-hien-tuong-donald-trump/)
 
-[Giải mã lệnh cấm vận vũ khí sát thương của Mỹ với Việt Nam | Tin Thế giới - goNews](http://news.go.vn/the-gioi/tin-2159010/giai-ma-lenh-cam-van-vu-khi-sat-thuong-cua-my-voi-viet-nam.htm)
+[Giải mã lệnh cấm vận vũ khí sát thương của Mỹ với Việt Nam . Tin Thế giới - goNews](http://news.go.vn/the-gioi/tin-2159010/giai-ma-lenh-cam-van-vu-khi-sat-thuong-cua-my-voi-viet-nam.htm)
 
 [Giao thương tự do có làm mất việc làm không? - Cafe Ku Búa](http://cafekubua.com/2016/08/29/giao-thuong-tu-do-co-lam-mat-viec-lam-khong/)
 
-[Global Economic Freedom Slightly Up, the United States Still Low | Cato @ Liberty](http://www.cato.org/blog/global-economic-freedom-slightly-united-states-still-low?utm_content=bufferd8ec5&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
+[Global Economic Freedom Slightly Up, the United States Still Low . Cato @ Liberty](http://www.cato.org/blog/global-economic-freedom-slightly-united-states-still-low?utm_content=bufferd8ec5&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
 [Good Profit Part II - YouTube](https://www.youtube.com/watch?v=9o4BDzpz_zI)
 
 [Google Search Results Can Lean Liberal, Study Finds - WSJ](http://www.wsj.com/articles/google-search-results-can-lean-liberal-study-finds-1479760691?mod=e2fb)
 
-[H.R.3134 - 114th Congress (2015-2016): Defund Planned Parenthood Act of 2015 | Congress.gov | Library of Congress](https://www.congress.gov/bill/114th-congress/house-bill/3134)
+[H.R.3134 - 114th Congress (2015-2016): Defund Planned Parenthood Act of 2015 . Congress.gov . Library of Congress](https://www.congress.gov/bill/114th-congress/house-bill/3134)
 
 [Hành động từ thiện của một nhà tư bản - Cafe Ku Búa](http://cafekubua.com/2016/06/11/hanh-dong-tu-thien-cua-mot-nha-tu-ban/)
 
@@ -4330,7 +4326,7 @@ Bookmarks của Thịnh Phạm
 
 [Hidden camera footage reveals what children are taught in Islamic Faith Schools across the UK.](https://www.facebook.com/kubua1989/posts/1650383628610299?pnref=story)
 
-[Hiểu cho đúng về tự do ngôn luận, nguyên tắc quyền cá nhân, nhóm và cộng đồng xã hội | Viet Conservative](http://www.vietconservative.com/2016/11/hieu-cho-ung-ve-tu-do-ngon-luan-nguyen.html)
+[Hiểu cho đúng về tự do ngôn luận, nguyên tắc quyền cá nhân, nhóm và cộng đồng xã hội . Viet Conservative](http://www.vietconservative.com/2016/11/hieu-cho-ung-ve-tu-do-ngon-luan-nguyen.html)
 
 [Hijra Islamic Migration islam explaination](https://www.youtube.com/watch?v=Tw9lpvjfhVk)
 
@@ -4340,13 +4336,13 @@ Bookmarks của Thịnh Phạm
 
 [Hillary gets DESTROYED on Social Media With #BasketOfDeplorables Trending Hashtag – TruthFeed](http://truthfeed.com/hillary-gets-destroyed-on-social-media-new-trending-hashtag-basketofdeplorables/22727/)
 
-[Hillary’s America: The Secret History of the Democratic Party -- Dinesh D’Souza on the Clinton Foundation | National Review](http://www.nationalreview.com/article/437883/hillarys-america-secret-history-democratic-party-dinesh-dsouza-clinton-foundation)
+[Hillary’s America: The Secret History of the Democratic Party -- Dinesh D’Souza on the Clinton Foundation . National Review](http://www.nationalreview.com/article/437883/hillarys-america-secret-history-democratic-party-dinesh-dsouza-clinton-foundation)
 
 [Historical Interest Rates and inflation](http://www.economicshelp.org/blog/1485/interest-rates/historical-real-interest-rate/)
 
-[History News Network | Why Do People Say Muslim Now Instead of Moslem?](http://historynewsnetwork.org/article/524)
+[History News Network . Why Do People Say Muslim Now Instead of Moslem?](http://historynewsnetwork.org/article/524)
 
-[Hitler's Economics | Mises Daily](https://mises.org/library/hitlers-economics)
+[Hitler's Economics . Mises Daily](https://mises.org/library/hitlers-economics)
 
 [Hoàng Dũng - ĐÃ CHẶN TRIỆT ĐỂ FACEBOOK - LEO TƯỜNG NÀO! Tôi viết...](https://www.facebook.com/photo.php?fbid=1058366270914138&set=a.120016104749164.30463.100002223250749&type=3&theater)
 
@@ -4356,7 +4352,7 @@ Bookmarks của Thịnh Phạm
 
 [Hoover Và Cuộc Đại Khủng Hoảng - Cafe Ku Búa](http://cafekubua.com/2016/01/13/hoover-va-cuoc-dai-khung-hoang/)
 
-[How American Soldiers Used Pig’s Blood and Corpses to Fight Muslim Terrorism | Frontpage Mag](http://www.frontpagemag.com/fpm/261954/how-american-soldiers-used-pigs-blood-and-corpses-daniel-greenfield)
+[How American Soldiers Used Pig’s Blood and Corpses to Fight Muslim Terrorism . Frontpage Mag](http://www.frontpagemag.com/fpm/261954/how-american-soldiers-used-pigs-blood-and-corpses-daniel-greenfield)
 
 [How we are beating hunger in 5 graphs](http://humanprogress.org/blog/hunger-in-5-graphs?utm_content=buffer59ef6&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
@@ -4364,7 +4360,7 @@ Bookmarks của Thịnh Phạm
 
 [Hộ Khẩu: một thứ khôi hài, vô lý và ngu ngốc - Cafe Ku Búa](http://cafekubua.com/2015/06/06/ho%CC%A3-kha%CC%89u-mo%CC%A3t-thu-khoi-hai-vo-ly-va-ngu-ngoc/)
 
-[Hồ Sơ Mật Dinh Độc Lập #1 - Truyện Dài của Nguyễn Tiến Hưng | Trò Chuyện Đêm Khuya - YouTube](https://www.youtube.com/watch?v=3bJppKrlD0Q)
+[Hồ Sơ Mật Dinh Độc Lập #1 - Truyện Dài của Nguyễn Tiến Hưng . Trò Chuyện Đêm Khuya - YouTube](https://www.youtube.com/watch?v=3bJppKrlD0Q)
 
 [Hồi Giáo Cực Đoan: hệ tư tưởng nguy hiểm nhất - YouTube](https://www.youtube.com/watch?v=V17kCuj1Vvo)
 
@@ -4380,13 +4376,13 @@ Bookmarks của Thịnh Phạm
 
 [If Suu Kyi Wins Myanmar Election, Can She Lead? - WSJ](http://www.wsj.com/articles/if-suu-kyi-wins-myanmar-victory-can-she-lead-1446775509)
 
-[In Defense of the Electoral College | Cato Institute](https://www.cato.org/publications/commentary/defense-electoral-college?utm_content=buffer6ea11&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
+[In Defense of the Electoral College . Cato Institute](https://www.cato.org/publications/commentary/defense-electoral-college?utm_content=buffer6ea11&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
-[Inside North Korea’s secret sex parties | New York Post](http://nypost.com/2016/04/28/inside-north-koreas-secret-sex-parties/?utm_campaign=SocialFlow&utm_source=NYPFacebook&utm_medium=SocialFlow)
+[Inside North Korea’s secret sex parties . New York Post](http://nypost.com/2016/04/28/inside-north-koreas-secret-sex-parties/?utm_campaign=SocialFlow&utm_source=NYPFacebook&utm_medium=SocialFlow)
 
 [Intermediate Macroeconomics - Money Supply Sample Problems](http://www.lidderdale.com/econ/311/ch8Prob.html)
 
-[Is Islam a Religion? | PJ Media](https://pjmedia.com/blog/is-islam-a-religion/)
+[Is Islam a Religion? . PJ Media](https://pjmedia.com/blog/is-islam-a-religion/)
 
 [Islam and Democratic Values - WikiIslam](http://wikiislam.net/wiki/Islam_and_Democratic_Values)
 
@@ -4410,9 +4406,9 @@ Bookmarks của Thịnh Phạm
 
 [Kẻ đào mồ chôn Biển, Cá và Người Việt tên là MCC - Bình Luận - Việt Báo Online, vụ formosa](https://vietbao.com/p112a255089/ke-dao-mo-chon-bien-ca-va-nguoi-viet-ten-la-mcc)
 
-[Khi chế độ sụp đổ, chúng ta cần làm gì và làm như thế nào? (Nguyễn Vũ Bình-Bauxite VN) | Thông luận](http://ethongluan01.blogspot.com/2016/11/khi-che-o-sup-o-chung-ta-can-lam-gi-va.html)
+[Khi chế độ sụp đổ, chúng ta cần làm gì và làm như thế nào? (Nguyễn Vũ Bình-Bauxite VN) . Thông luận](http://ethongluan01.blogspot.com/2016/11/khi-che-o-sup-o-chung-ta-can-lam-gi-va.html)
 
-[Khi Đồng Minh Tháo Chạy #1 - Truyện Dài | Trò Chuyện Đêm Khuya - YouTube](https://www.youtube.com/watch?v=jg_Kayz2e5E)
+[Khi Đồng Minh Tháo Chạy #1 - Truyện Dài . Trò Chuyện Đêm Khuya - YouTube](https://www.youtube.com/watch?v=jg_Kayz2e5E)
 
 [Khóa Học - Đầu Cơ Forex - Mục Lục - Cafe Ku Búa](http://cafekubua.com/2016/05/05/khoa-hoc-dau-co-forex/)
 
@@ -4432,9 +4428,9 @@ Bookmarks của Thịnh Phạm
 
 [Lại Xì-Căng-Đan - Bình Luận - Việt Báo Online](https://vietbao.com/a256202/lai-xi-cang-dan)
 
-[Learn Liberty | The Welfare Cliff And Why Many Low-Income Workers Will Never Overcome Poverty](http://www.learnliberty.org/blog/the-welfare-cliff-and-why-many-low-income-workers-will-never-overcome-poverty/?utm_source=facebook&utm_medium=social&utm_content=blog+16%2C+Blog%2C+Blog%2C+welfare+cliff%2C+8%2F29%2F2016&utm_campaign=blog+16)
+[Learn Liberty . The Welfare Cliff And Why Many Low-Income Workers Will Never Overcome Poverty](http://www.learnliberty.org/blog/the-welfare-cliff-and-why-many-low-income-workers-will-never-overcome-poverty/?utm_source=facebook&utm_medium=social&utm_content=blog+16%2C+Blog%2C+Blog%2C+welfare+cliff%2C+8%2F29%2F2016&utm_campaign=blog+16)
 
-[Learn Liberty | Venezuela, Socialism, and The Unlearned Lessons of Political Economy](http://www.learnliberty.org/blog/venezuela-socialism-and-the-unlearned-lessons-of-political-economy/?utm_source=facebook&utm_medium=social&utm_content=blog+16%2C+venezuela%2C+socialism%2C+adam+smith%2C+6%2F16%2F2016&utm_campaign=blog+16)
+[Learn Liberty . Venezuela, Socialism, and The Unlearned Lessons of Political Economy](http://www.learnliberty.org/blog/venezuela-socialism-and-the-unlearned-lessons-of-political-economy/?utm_source=facebook&utm_medium=social&utm_content=blog+16%2C+venezuela%2C+socialism%2C+adam+smith%2C+6%2F16%2F2016&utm_campaign=blog+16)
 
 [Lịch sử hiện đại: Chiến tranh và cách mạng "Tôi là con người của đức tin. Tôi chỉ sợ chúa, và đôi khi… là vợ tôi Lech Walesa](https://www.facebook.com/Lichsuhiendai/photos/a.236807793173758.1073741828.236522739868930/556953147825886/?type=3&theater)
 
@@ -4456,7 +4452,7 @@ Bookmarks của Thịnh Phạm
 
 [Lời Ngay Nói Thẳng (2) Tôi đã đoán trước sự thắng cử của Donald Trump suốt từ hồi mới bắt đầu tranh cử](https://www.facebook.com/ton.ngokhong.961/posts/699962603485352)
 
-[Ludwig von Mises (1881-1973) – Chủ nghĩa tự do truyền thống (phần 1) | Triết học đường phố](https://triethocduongpho.wordpress.com/2015/06/02/ludwig-von-mises-1881-1973-chu-nghia-tu-do-truyen-thong-phan-1/)
+[Ludwig von Mises (1881-1973) – Chủ nghĩa tự do truyền thống (phần 1) . Triết học đường phố](https://triethocduongpho.wordpress.com/2015/06/02/ludwig-von-mises-1881-1973-chu-nghia-tu-do-truyen-thong-phan-1/)
 
 [Lực lượng đi làm và ăn bám ở Việt Nam - Cafe Ku Búa](http://cafekubua.com/2016/10/04/luc-luong-di-lam-va-an-bam-o-viet-nam-2/)
 
@@ -4470,11 +4466,11 @@ Bookmarks của Thịnh Phạm
 
 [Meet Bernie Sanders, the Six-Figure Socialist](http://fortune.com/2016/02/28/bernie-sanders-socialist-finances/)
 
-[Meet The Leftist Professor Who Wrote The 'Hit List' Of "Fake News" Sites | Zero Hedge](http://www.zerohedge.com/news/2016-11-18/meet-leftist-professor-who-wrote-hit-list-fake-news-sites)
+[Meet The Leftist Professor Who Wrote The 'Hit List' Of "Fake News" Sites . Zero Hedge](http://www.zerohedge.com/news/2016-11-18/meet-leftist-professor-who-wrote-hit-list-fake-news-sites)
 
 [MILO at University of Central Florida: "10 Things I Hate About Islam" - YouTube](https://www.youtube.com/watch?v=prO7R1l2kZI)
 
-[Milton Friedman - Cuộc chiến tranh mà chúng ta đang thua | Phạm Nguyên Trường](http://phamnguyentruong.blogspot.fr/2015/02/milton-friedman-cuoc-chien-tranh-ma.html)
+[Milton Friedman - Cuộc chiến tranh mà chúng ta đang thua . Phạm Nguyên Trường](http://phamnguyentruong.blogspot.fr/2015/02/milton-friedman-cuoc-chien-tranh-ma.html)
 
 [Milton Friedman - Những ngộ nhận kinh tế và phản ứng của dư luận (1976) - Cafe Ku Búa](http://cafekubua.com/2016/06/23/milton-friedman-nhung-ngo%cc%a3-nha%cc%a3n-kinh-te-va-pha%cc%89n-ung-cu%cc%89a-du-lua%cc%a3n-1976/5/)
 
@@ -4586,7 +4582,7 @@ Bookmarks của Thịnh Phạm
 
 [NHẮC LẠI CUỘC NỔI DẬY CỦA DÂN QUỲNH LƯU (ngày 13.11.1956)](http://lybichthuy.blogspot.fr/2014/09/nhac-lai-noi-day-cua-dan-quynh-luu-ngay.html)
 
-[Nhân dân và dư luận Nhật Bản nhiệt liệt ủng hộ cuộc chống Mỹ, cứu nước của nhân dân ta (15-11-1965) | Việt Nam](https://tennguoidepnhat.net/2012/04/03/nhan-dan-va-d%C6%B0-lu%E1%BA%ADn-nh%E1%BA%ADt-b%E1%BA%A3n-nhi%E1%BB%87t-li%E1%BB%87t-%E1%BB%A7ng-h%E1%BB%99-cu%E1%BB%99c-ch%E1%BB%91ng-m%E1%BB%B9-c%E1%BB%A9u-n%C6%B0%E1%BB%9Bc-c%E1%BB%A7a-nhan-dan-ta/)
+[Nhân dân và dư luận Nhật Bản nhiệt liệt ủng hộ cuộc chống Mỹ, cứu nước của nhân dân ta (15-11-1965) . Việt Nam](https://tennguoidepnhat.net/2012/04/03/nhan-dan-va-d%C6%B0-lu%E1%BA%ADn-nh%E1%BA%ADt-b%E1%BA%A3n-nhi%E1%BB%87t-li%E1%BB%87t-%E1%BB%A7ng-h%E1%BB%99-cu%E1%BB%99c-ch%E1%BB%91ng-m%E1%BB%B9-c%E1%BB%A9u-n%C6%B0%E1%BB%9Bc-c%E1%BB%A7a-nhan-dan-ta/)
 
 [Nhập cư hàng triệu người Hồi giáo – châu Âu đang "tự sát" - Đại Kỷ Nguyên](http://www.daikynguyenvn.com/the-gioi/nhap-cu-hang-trieu-nguoi-hoi-giao-chau-au-dang-tu-sat.html)
 
@@ -4596,7 +4592,7 @@ Bookmarks của Thịnh Phạm
 
 [Nhật ký yêu nước áo vest thoát hiểm và tại sao vc không nhờ Mỹ cứu giúp phi công!](https://www.facebook.com/nhatkyyeunuoc1/posts/1403209523039124)
 
-[Nhìn lại nền Giáo dục VNCH : Sự tiếc nuối vô bờ bến | Huỳnh Minh Tú](https://tuxtini.com/2013/12/01/nhin-lai-nen-giao-duc-vnch-su-tiec-nuoi-vo-bo-ben/)
+[Nhìn lại nền Giáo dục VNCH : Sự tiếc nuối vô bờ bến . Huỳnh Minh Tú](https://tuxtini.com/2013/12/01/nhin-lai-nen-giao-duc-vnch-su-tiec-nuoi-vo-bo-ben/)
 
 [NHỮNG BÀI HỌC CẦN BIẾT VỀ THIÊN AN MÔN - Nga Thi Bich Nguyen](https://www.facebook.com/ngavoi.nguyen/posts/1190021717736780)
 
@@ -4606,7 +4602,7 @@ Bookmarks của Thịnh Phạm
 
 [Những sự thật cần phải biết](http://namviet.net/blog-hanhoa/?page_id=717#.V_w73_mLTIV)
 
-[Niall Ferguson: 6 ứng dụng là sát thủ của sự thịnh vượng | TED Talk | TED.com](https://www.ted.com/talks/niall_ferguson_the_6_killer_apps_of_prosperity?language=vi)
+[Niall Ferguson: 6 ứng dụng là sát thủ của sự thịnh vượng . TED Talk . TED.com](https://www.ted.com/talks/niall_ferguson_the_6_killer_apps_of_prosperity?language=vi)
 
 [Niềm tin chiến thắng (Tiếng Đức: Triumph des Willens). Phim mô tả lại đại hội Đảng Quốc xã năm 1934.](https://www.facebook.com/Lichsuhiendai/videos/558163017704899/)
 
@@ -4632,11 +4628,11 @@ Bookmarks của Thịnh Phạm
 
 [Our own Rick Barton takes a look at why air travel doesn't seem to have had the innovations of cars and other technology](https://www.facebook.com/CKinstitute/videos/792041600936675/)
 
-[Patriot News Hub | Reinforce border fence with pigs’ heads to better repel refugees, Hungarian MEP proposes](http://patriotnews.uk/reinforce-border-fence-with-pigs-heads-to-better-repel-refugees-hungarian-mep-proposes/)
+[Patriot News Hub . Reinforce border fence with pigs’ heads to better repel refugees, Hungarian MEP proposes](http://patriotnews.uk/reinforce-border-fence-with-pigs-heads-to-better-repel-refugees-hungarian-mep-proposes/)
 
-[Patriot News Hub | TRAGEDY: Europe ‘On the Verge of a Demographic Crisis, But No One Wants to Talk About It’](http://patriotnews.uk/tragedy-europe-on-the-verge-of-a-demographic-crisis-but-no-one-wants-to-talk-about-it/)
+[Patriot News Hub . TRAGEDY: Europe ‘On the Verge of a Demographic Crisis, But No One Wants to Talk About It’](http://patriotnews.uk/tragedy-europe-on-the-verge-of-a-demographic-crisis-but-no-one-wants-to-talk-about-it/)
 
-[People, Not Ratios: Why the Debate Over Income Inequality Asks the Wrong Questions | Libertarianism.org](https://www.libertarianism.org/media/free-thoughts/people-not-ratios-why-debate-over-income-inequality-asks-wrong-questions)
+[People, Not Ratios: Why the Debate Over Income Inequality Asks the Wrong Questions . Libertarianism.org](https://www.libertarianism.org/media/free-thoughts/people-not-ratios-why-debate-over-income-inequality-asks-wrong-questions)
 
 [Phạm Nguyên Trường: NHÂN DÂN NÀO LÃNH TỤ ẤY HAY LÃNH TỤ NÀO NHÂN DÂN ẤY?](http://phamnguyentruong.blogspot.jp/2016/10/nhan-dan-nao-lanh-tu-ay-hay-lanh-tu-nao.html?m=1)
 
@@ -4658,21 +4654,21 @@ Bookmarks của Thịnh Phạm
 
 [PragerU Social justice, explained, sự bịp bợm của cánh tả](https://www.facebook.com/prageru/posts/1167704166605771)
 
-[Progressives' Paranoid Fantasy of "Right-wing Billionaires Infiltrating Higher Ed" | Foundation for Economic Education](https://fee.org/articles/progressives-paranoid-fantasy-of-right-wing-billionaires-infiltrating-higher-ed/)
+[Progressives' Paranoid Fantasy of "Right-wing Billionaires Infiltrating Higher Ed" . Foundation for Economic Education](https://fee.org/articles/progressives-paranoid-fantasy-of-right-wing-billionaires-infiltrating-higher-ed/)
 
 [Raymond Ibrahim: Forget Explanations, Focus on Reason Why West is Losing against Islam](https://www.jihadwatch.org/2016/08/raymond-ibrahim-forget-explanations-focus-on-reason-why-west-is-losing-against-islam)
 
 [Republicans (Jeffersonian) - Conservapedia](http://www.conservapedia.com/Republicans_(Jeffersonian)#cite_note-1)
 
-[Right-wing German party says ban the burka claiming Islam isn't part of their constitution | World | News | Daily Express](http://www.express.co.uk/news/world/666172/Germany-right-wing-party-anti-Islamic-ban-burka-Muslims-Europe)
+[Right-wing German party says ban the burka claiming Islam isn't part of their constitution . World . News . Daily Express](http://www.express.co.uk/news/world/666172/Germany-right-wing-party-anti-Islamic-ban-burka-Muslims-Europe)
 
 [ROBERT MERRY: Clash between West and Islam - Washington Times](http://www.washingtontimes.com/news/2015/nov/16/robert-merry-clash-between-west-and-islam/)
 
-[Robert Nozick - Vì sao các nhà trí thức phản đối chủ nghĩa tư bản? | Phạm Nguyên Trường](http://phamnguyentruong.blogspot.fr/2013/11/robert-nozick-vi-sao-cac-nha-tri-thuc.html)
+[Robert Nozick - Vì sao các nhà trí thức phản đối chủ nghĩa tư bản? . Phạm Nguyên Trường](http://phamnguyentruong.blogspot.fr/2013/11/robert-nozick-vi-sao-cac-nha-tri-thuc.html)
 
 [Russell Simmons: “Probably more Christians are radicalized” than Muslims, “Islamophobia” is “the worst scourge we have”](https://www.jihadwatch.org/2016/10/russell-simmons-probably-more-christians-are-radicalized-than-muslims-islamophobia-is-the-worst-scourge-we-have)
 
-[Ryan Mauro and is Opposing CAIR "Islamophobic"? | Frontpage Mag](http://www.frontpagemag.com/point/262686/ryan-mauro-and-opposing-cair-islamophobic-daniel-greenfield)
+[Ryan Mauro and is Opposing CAIR "Islamophobic"? . Frontpage Mag](http://www.frontpagemag.com/point/262686/ryan-mauro-and-opposing-cair-islamophobic-daniel-greenfield)
 
 [SaigonTV: Hội Luận với gs Nguyễn Tiến Hưng- Khi Đồng Minh Nhảy Vào, May 7, 2016 - YouTube](https://www.youtube.com/watch?v=lMBG1vzoTas)
 
@@ -4680,7 +4676,7 @@ Bookmarks của Thịnh Phạm
 
 [Saudi Media Attacks Justice Against Sponsors Of Terrorism Act (JASTA) Passed By U.S. Congress](http://www.memri.org/report/en/0/0/0/0/0/0/9495.htm)
 
-[Senate Votes for Equal Slavery for Women | Foundation for Economic Education](https://fee.org/articles/senate-votes-for-equal-slavery-for-women//?utm_source=twitter&utm_medium=learnliberty&utm_content=FEE)
+[Senate Votes for Equal Slavery for Women . Foundation for Economic Education](https://fee.org/articles/senate-votes-for-equal-slavery-for-women//?utm_source=twitter&utm_medium=learnliberty&utm_content=FEE)
 
 [Sex Segregation in Islam - WikiIslam](http://wikiislam.net/wiki/Sex_Segregation_in_Islam)
 
@@ -4692,17 +4688,17 @@ Bookmarks của Thịnh Phạm
 
 [Should America Fear Sharia? hồi giáo - YouTube](https://www.youtube.com/watch?v=aO9KhXYYv68)
 
-[Slavery Didn't Cause Today's Black Problems, Welfare Did | National Review](http://www.nationalreview.com/article/420807/slavery-didnt-cause-todays-black-problems-welfare-did)
+[Slavery Didn't Cause Today's Black Problems, Welfare Did . National Review](http://www.nationalreview.com/article/420807/slavery-didnt-cause-todays-black-problems-welfare-did)
 
 [Smashwords – VIỆT NAM NHÌN TỪ BÊN TRONG - A book by Tạ Chí Đại Trường - page 6](https://www.smashwords.com/extreader/read/274103/6/viet-nam-nhin-tu-ben-trong)
 
-[Socialism Kills More Babies than War | Foundation for Economic Education](https://fee.org/articles/socialism-kills-more-babies-than-war/?utm_source=facebook&utm_medium&utm_content=FEE)
+[Socialism Kills More Babies than War . Foundation for Economic Education](https://fee.org/articles/socialism-kills-more-babies-than-war/?utm_source=facebook&utm_medium&utm_content=FEE)
 
 [Soros Money, Muslim Advocates Leader, Helped Weaken Homeland Security Policies: An IPT Investigation :: The Investigative Project on Terrorism](http://www.investigativeproject.org/5669/soros-money-muslim-advocates-leader-helped-weaken#)
 
-[Steve Bannon and Keith Ellison: Do the Democrats Really Care About Anti-Semitism? | Frontpage Mag](http://www.frontpagemag.com/fpm/264834/steve-bannon-and-keith-ellison-do-democrats-really-robert-spencer)
+[Steve Bannon and Keith Ellison: Do the Democrats Really Care About Anti-Semitism? . Frontpage Mag](http://www.frontpagemag.com/fpm/264834/steve-bannon-and-keith-ellison-do-democrats-really-robert-spencer)
 
-[Stop YouTube From Blocking PragerU Videos! | PragerU](https://www.prageru.com/stop-youtube-blocking-prageru-videos)
+[Stop YouTube From Blocking PragerU Videos! . PragerU](https://www.prageru.com/stop-youtube-blocking-prageru-videos)
 
 [Sự bịp bợm của truyền thông dòng chính, đặc biệt là NYT (New York Times)](https://www.facebook.com/thinhpham.univ.tours/posts/1460449337305687?pnref=story)
 
@@ -4722,7 +4718,7 @@ Bookmarks của Thịnh Phạm
 
 [Swedish journalist calls opponents of Muslim migrant influx “human brown rats,” calls for them to be exterminated](https://www.jihadwatch.org/2016/09/swedish-journalist-calls-opponents-of-muslim-migrant-influx-human-brown-rats-calls-for-them-to-be-exterminated)
 
-[TẠI SAO KHÔNG NÊN DÙNG CHỮ “TRUNG QUỐC” (Trần Đức Dũng) | Vinh Danh QLVNCH và Bảo Vệ CỜ VÀNG](https://baovecovang2012.wordpress.com/2015/09/21/tai-sao-khong-nen-dung-chu-trung-quoc-tran-duc-dung/)
+[TẠI SAO KHÔNG NÊN DÙNG CHỮ “TRUNG QUỐC” (Trần Đức Dũng) . Vinh Danh QLVNCH và Bảo Vệ CỜ VÀNG](https://baovecovang2012.wordpress.com/2015/09/21/tai-sao-khong-nen-dung-chu-trung-quoc-tran-duc-dung/)
 
 [Tại sao người chủ, người đầu tư, người đầu cơ, người kinh doanh là những người quan trọng nhất chứ không phải là người lao động](https://www.facebook.com/kubua1989/posts/1674518876196774?pnref=story)
 
@@ -4760,19 +4756,19 @@ Bookmarks của Thịnh Phạm
 
 [The big switch is a big lie. Emma Capps may be young, but she gets it! Watch and see for yourself.](https://www.facebook.com/DSouzaDinesh/videos/590642774478845/)
 
-[The Burkini is About Sexual Violence Against Women | Frontpage Mag](http://www.frontpagemag.com/fpm/263991/burkini-about-sexual-violence-against-women-daniel-greenfield#.V8XyTDmNRo4.facebook)
+[The Burkini is About Sexual Violence Against Women . Frontpage Mag](http://www.frontpagemag.com/fpm/263991/burkini-about-sexual-violence-against-women-daniel-greenfield#.V8XyTDmNRo4.facebook)
 
 [The Clinton Foundation got rich off of poor Haitians. They don't care about the Haitian people. They care about themselves.](https://www.facebook.com/nationalreview/videos/10157751498100093/)
 
 [THE DISMAL STATE OF THE DISMAL SCIENCE.](https://social.shorthand.com/montie/3CeiPOdwyjf/three)
 
-[The Economics of Trade: Wilbur Ross Is Mistaken | Cato @ Liberty](http://www.cato.org/blog/economics-trade-wilbur-ross-mistaken?utm_content=bufferc6827&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
+[The Economics of Trade: Wilbur Ross Is Mistaken . Cato @ Liberty](http://www.cato.org/blog/economics-trade-wilbur-ross-mistaken?utm_content=bufferc6827&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
-[The Forgotten Genocide: Why It Matters Today | raymondibrahim.com](http://www.raymondibrahim.com/2013/04/24/the-forgotten-genocide-why-it-matters-today/)
+[The Forgotten Genocide: Why It Matters Today . raymondibrahim.com](http://www.raymondibrahim.com/2013/04/24/the-forgotten-genocide-why-it-matters-today/)
 
-[The forgotten Holocaust: The Armenian massacre that inspired Hitler | Daily Mail Online](http://www.dailymail.co.uk/news/article-479143/The-forgotten-Holocaust-The-Armenian-massacre-inspired-Hitler.html)
+[The forgotten Holocaust: The Armenian massacre that inspired Hitler . Daily Mail Online](http://www.dailymail.co.uk/news/article-479143/The-forgotten-Holocaust-The-Armenian-massacre-inspired-Hitler.html)
 
-[The High Price of Telling the Truth About Islam | Frontpage Mag](http://www.frontpagemag.com/fpm/122048/high-price-telling-truth-about-islam-eric-allen-bell)
+[The High Price of Telling the Truth About Islam . Frontpage Mag](http://www.frontpagemag.com/fpm/122048/high-price-telling-truth-about-islam-eric-allen-bell)
 
 [The Left Chose Islam Over Gays. Now 100 People Are Dead Or Maimed In Orlando - Breitbart](http://www.breitbart.com/milo/2016/06/12/left-chose-islam-gays-now-100-people-killed-maimed-orlando/)
 
@@ -4780,17 +4776,17 @@ Bookmarks của Thịnh Phạm
 
 [The mall shooter wasn't Hispanic, he was a... - Paul Joseph Watson](https://www.facebook.com/paul.j.watson.71/posts/10154545830091171)
 
-[The Market and Political Freedom | Foundation for Economic Education](https://fee.org/articles/the-market-and-political-freedom/)
+[The Market and Political Freedom . Foundation for Economic Education](https://fee.org/articles/the-market-and-political-freedom/)
 
 [The Meaning of Islam - WikiIslam](https://wikiislam.net/wiki/The_Meaning_of_Islam)
 
 [The Muslim Brotherhood's Strategic Plan For America - Court Document](http://www.clarionproject.org/Muslim_Brotherhood_Explanatory_Memorandum)
 
-[The Muslim Will vs. the Western Way | Frontpage Mag](http://www.frontpagemag.com/fpm/262552/muslim-will-vs-western-way-raymond-ibrahim)
+[The Muslim Will vs. the Western Way . Frontpage Mag](http://www.frontpagemag.com/fpm/262552/muslim-will-vs-western-way-raymond-ibrahim)
 
-[The Muslim Will vs. the Western Way | raymondibrahim.com](http://www.raymondibrahim.com/2016/04/18/the-muslim-will-vs-the-western-way/)
+[The Muslim Will vs. the Western Way . raymondibrahim.com](http://www.raymondibrahim.com/2016/04/18/the-muslim-will-vs-the-western-way/)
 
-[The Next Holocaust: Torture, Mutilation, and then Death | Heaven Awaits](https://heavenawaits.wordpress.com/the-next-holocaust-torture-mutilation-and-then-death/)
+[The Next Holocaust: Torture, Mutilation, and then Death . Heaven Awaits](https://heavenawaits.wordpress.com/the-next-holocaust-torture-mutilation-and-then-death/)
 
 [The price of converting to Christianity from Islam](https://www.jihadwatch.org/2016/09/the-price-of-converting-to-christianity-from-islam)
 
@@ -4814,7 +4810,7 @@ Bookmarks của Thịnh Phạm
 
 [Theo Dõi Khủng Bố Hay Theo Dõi Dân? - Bình Luận - Việt Báo Online](https://vietbao.com/a206203/theo-doi-khung-bo-hay-theo-doi-dan)
 
-[There’s No Political Freedom Without Economic Freedom | Mises Daily](https://mises.org/library/there%E2%80%99s-no-political-freedom-without-economic-freedom)
+[There’s No Political Freedom Without Economic Freedom . Mises Daily](https://mises.org/library/there%E2%80%99s-no-political-freedom-without-economic-freedom)
 
 [Thêm ý kiến về Phật giáo và Dân tộc (Mặc Lâm)](http://ethongluan.org/index.php?option=com_content&view=article&id=24691:them-y-ki-n-v-ph-t-giao-va-dan-t-c-m-c-lam&catid=65&Itemid=301)
 
@@ -4836,7 +4832,7 @@ Bookmarks của Thịnh Phạm
 
 [Thuyết Kinh Tế Chính Trị Của Adam Smith - Cafe Ku Búa](http://cafekubua.com/2016/07/04/thuyet-kinh-te-chinh-tri-cua-adam-smith/)
 
-[Thử phản biện những thông điệp mà truyền thông đưa ra về US Election 2016 | Viet Conservative](http://www.vietconservative.com/2016/11/thu-phan-bien-nhung-thong-iep-ma-truyen.html)
+[Thử phản biện những thông điệp mà truyền thông đưa ra về US Election 2016 . Viet Conservative](http://www.vietconservative.com/2016/11/thu-phan-bien-nhung-thong-iep-ma-truyen.html)
 
 [Thực Hư Về Đảng Cộng Hòa – Phần I - Bình Luận - Việt Báo Online](https://vietbao.com/a205220/thuc-hu-ve-dang-cong-hoa-phan-i)
 
@@ -4852,15 +4848,15 @@ Bookmarks của Thịnh Phạm
 
 [Toàn trị luôn bắt đầu bằng chiến tranh thông tin, chiến tranh thuật ngữ và tiêu chuẩn kép!](https://www.facebook.com/OccupyDemocratsLogic/photos/a.1647169182167657.1073741828.1646874365530472/1816966331854607/?type=3&theater)
 
-[Top Nine Myths About Trade Promotion Authority And The Trans-Pacific Partnership | Cato @ Liberty](http://www.cato.org/blog/top-nine-myths-about-trade-promotion-authority-trans-pacific-partnership#myth8)
+[Top Nine Myths About Trade Promotion Authority And The Trans-Pacific Partnership . Cato @ Liberty](http://www.cato.org/blog/top-nine-myths-about-trade-promotion-authority-trans-pacific-partnership#myth8)
 
 [Totalitarian Islam - Political Islam](https://www.politicalislam.com/totalitarian-islam/)
 
-[Tổ quốc ăn năn - Nguyễn Gia Kiểng » Lòng mẹ bao la như biển Thái Bình | Thư viện Vinadia](http://www.vinadia.org/to-quoc-an-nan-nguyen-gia-kieng/long-me-bao-la-nhu-bien-thai-binh/)
+[Tổ quốc ăn năn - Nguyễn Gia Kiểng » Lòng mẹ bao la như biển Thái Bình . Thư viện Vinadia](http://www.vinadia.org/to-quoc-an-nan-nguyen-gia-kieng/long-me-bao-la-nhu-bien-thai-binh/)
 
-[Tổ quốc ăn năn - Nguyễn Gia Kiểng » Mấy ngàn năm lịch sử? | Thư viện Vinadia](http://www.vinadia.org/to-quoc-an-nan-nguyen-gia-kieng/to-quoc-an-nan-may-ngan-nam-lich-su/)
+[Tổ quốc ăn năn - Nguyễn Gia Kiểng » Mấy ngàn năm lịch sử? . Thư viện Vinadia](http://www.vinadia.org/to-quoc-an-nan-nguyen-gia-kieng/to-quoc-an-nan-may-ngan-nam-lich-su/)
 
-[Tổ quốc ăn năn - Nguyễn Gia Kiểng » Phương pháp và gắn bó | Thư viện Vinadia](http://www.vinadia.org/to-quoc-an-nan-nguyen-gia-kieng/to-quoc-an-nan-phuong-phap-va-gan-bo/)
+[Tổ quốc ăn năn - Nguyễn Gia Kiểng » Phương pháp và gắn bó . Thư viện Vinadia](http://www.vinadia.org/to-quoc-an-nan-nguyen-gia-kieng/to-quoc-an-nan-phuong-phap-va-gan-bo/)
 
 [trách nhiệm tới người nghèo, Milton Friedman](https://www.youtube.com/watch?v=Rls8H6MktrA)
 
@@ -4896,13 +4892,13 @@ Bookmarks của Thịnh Phạm
 
 [Tự do kinh tế và thịnh vượng - Cafe Ku Búa](http://cafekubua.com/2015/07/26/tu-do-kinh-te-va-thinh-vuong/)
 
-[TƯ VẤN TÀI CHÍNH (4 ->9 triệu) - DAI ICHI LIFE NHẬT BẢN, Hồ Chí Minh, Kế toán/ Tài chính/ Kiểm toán | Việc Làm, Tìm Việc, Tuyển Dụng, Tìm Việc Làm - CareerLink.vn](https://www.careerlink.vn/tim-viec-lam/tu-van-tai-chinh-4-%3E9-trieu/942647)
+[TƯ VẤN TÀI CHÍNH (4 ->9 triệu) - DAI ICHI LIFE NHẬT BẢN, Hồ Chí Minh, Kế toán/ Tài chính/ Kiểm toán . Việc Làm, Tìm Việc, Tuyển Dụng, Tìm Việc Làm - CareerLink.vn](https://www.careerlink.vn/tim-viec-lam/tu-van-tai-chinh-4-%3E9-trieu/942647)
 
 [Tỵ nạn người Việt Nam và nhập cư bất hợp pháp người Hồi Giáo - Cafe Ku Búa](http://cafekubua.com/2016/09/22/ty-nan-nguoi-viet-nam-va-nhap-cu-bat-hop-phap-nguoi-hoi-giao/)
 
-[U.N. Chief Says He Went Soft on Saudi Arabia and Allies to Avoid Aid Cut | Foreign Policy](http://webcache.googleusercontent.com/search?q=cache:fyRsWrYLUzYJ:foreignpolicy.com/2016/06/09/u-n-chief-says-he-went-soft-on-saudi-arabia-and-allies-to-avoid-aid-cut/+&cd=1&hl=vi&ct=clnk&gl=fr)
+[U.N. Chief Says He Went Soft on Saudi Arabia and Allies to Avoid Aid Cut . Foreign Policy](http://webcache.googleusercontent.com/search?q=cache:fyRsWrYLUzYJ:foreignpolicy.com/2016/06/09/u-n-chief-says-he-went-soft-on-saudi-arabia-and-allies-to-avoid-aid-cut/+&cd=1&hl=vi&ct=clnk&gl=fr)
 
-[University of Tennessee: Jew Hatred on Parade | Frontpage Mag](http://www.frontpagemag.com/fpm/264544/university-tennessee-jew-hatred-parade-frontpagemagcom)
+[University of Tennessee: Jew Hatred on Parade . Frontpage Mag](http://www.frontpagemag.com/fpm/264544/university-tennessee-jew-hatred-parade-frontpagemagcom)
 
 [Uzbekistan và động đất tại Trung Á - Nguoi Viet Daily News](http://www.nguoi-viet.com/nhin-tu-hoa-ky/uzbekistan-va-dong-dat-tai-trung/)
 
@@ -4930,7 +4926,7 @@ Bookmarks của Thịnh Phạm
 
 [Vì sao Mỹ bầu tổng thống qua hệ thống đại cử tri đoàn? - Cafe Ku Búa](http://cafekubua.com/2015/10/21/vi-sao-my-bau-tong-thong-qua-he-thong-dai-cu-tri-doan/)
 
-[VienDongDaily.Com | Nữ huynh trưởng Phật tử tự thiêu chống Trung Quốc xâm lược - Nu huynh truong Phat tu tu thieu chong Trung Quoc xam luoc](http://www.viendongdaily.com/nu-huynh-truong-phat-tu-tu-thieu-chong-trung-quoc-xam-luoc-nBQcHy5Q.html)
+[VienDongDaily.Com . Nữ huynh trưởng Phật tử tự thiêu chống Trung Quốc xâm lược - Nu huynh truong Phat tu tu thieu chong Trung Quoc xam luoc](http://www.viendongdaily.com/nu-huynh-truong-phat-tu-tu-thieu-chong-trung-quoc-xam-luoc-nBQcHy5Q.html)
 
 [Viet Conservative & Classical Liberal cách hồi giáo thống trị thế giới](https://www.facebook.com/photo.php?fbid=10207612358691986&set=a.2392596699271.2106986.1381520755&type=3&theater)
 
@@ -4940,7 +4936,7 @@ Bookmarks của Thịnh Phạm
 
 [Việt Nam: độc tài chuyên chế hay độc tài toàn trị?](http://www.voatiengviet.com/content/vietnam-doc-tai-chuyen-che-hay-doc-tai-toan-tri/2667868.html)
 
-[Viral graphic says Japan keeps out radical Islam through strong restrictions on Muslims | PolitiFact](http://www.politifact.com/truth-o-meter/statements/2015/nov/17/viral-image/viral-graphic-says-japan-keeps-out-radical-islam-t/)
+[Viral graphic says Japan keeps out radical Islam through strong restrictions on Muslims . PolitiFact](http://www.politifact.com/truth-o-meter/statements/2015/nov/17/viral-image/viral-graphic-says-japan-keeps-out-radical-islam-t/)
 
 [VN lợi hay hại sau phán quyết PCA? - BBC Tiếng Việt](http://www.bbc.com/vietnamese/vietnam/2016/07/160714_nguyenngoclan_comments_pca_verdict)
 
@@ -4952,13 +4948,13 @@ Bookmarks của Thịnh Phạm
 
 [Wealth of Nations — Bk 5 Chpt 01 (Part II)](https://www.marxists.org/reference/archive/smith-adam/works/wealth-of-nations/book05/ch01b.htm)
 
-[Were Witches Really Burned in the Middle Ages? | History Rundown](http://www.historyrundown.com/were-witches-really-burned-in-the-middle-ages/)
+[Were Witches Really Burned in the Middle Ages? . History Rundown](http://www.historyrundown.com/were-witches-really-burned-in-the-middle-ages/)
 
 [What is a Republic? - Definition - Quatr.us](http://quatr.us/government/republic.htm)
 
 [What is Bernie Sanders' Net Worth? - Money Nation](http://moneynation.com/bernie-sanders-net-worth/)
 
-[What is capitalism? | The Capitalism Site](http://capitalism.org/capitalism/what-is-capitalism/)
+[What is capitalism? . The Capitalism Site](http://capitalism.org/capitalism/what-is-capitalism/)
 
 [What is Islam? - Political Islam](https://www.politicalislam.com/about/)
 
@@ -4970,11 +4966,11 @@ Bookmarks của Thịnh Phạm
 
 [When communism fell, so did mass killings.](https://www.facebook.com/HumanProgress.org/photos/a.684145548268903.1073741828.506680536015406/1369139626436155/?type=3&theater)
 
-[When is inequality harmful? When it's caused by cronyism | Washington Examiner](http://www.washingtonexaminer.com/when-is-inequality-harmful-when-its-caused-by-cronyism/article/2540338?utm_source=Tim%20Carney%20Reoccurring%20-%2012/08/2013&%3Butm_medium=email&%3Butm_campaign=Washington%20Examiner:%20Timothy%20P%20Carney)
+[When is inequality harmful? When it's caused by cronyism . Washington Examiner](http://www.washingtonexaminer.com/when-is-inequality-harmful-when-its-caused-by-cronyism/article/2540338?utm_source=Tim%20Carney%20Reoccurring%20-%2012/08/2013&%3Butm_medium=email&%3Butm_campaign=Washington%20Examiner:%20Timothy%20P%20Carney)
 
 [Who invented democracy? - Quatr.us](http://quatr.us/government/democracy.htm)
 
-[Why Are Buddhist Monks Attacking Muslims? A Response….. | talktruthful.com](https://talktruthful.com/2014/03/18/why-are-buddhist-monks-attacking-muslims-a-response/)
+[Why Are Buddhist Monks Attacking Muslims? A Response….. . talktruthful.com](https://talktruthful.com/2014/03/18/why-are-buddhist-monks-attacking-muslims-a-response/)
 
 [Why are So Many Rich People Liberals?Nikitas3.com](http://nikitas3.com/1083/why-are-so-many-rich-people-liberals/)
 
@@ -4986,11 +4982,11 @@ Bookmarks của Thịnh Phạm
 
 [Why Don't Feminists Fight for Muslim Women? - YouTube](https://www.youtube.com/watch?v=wJkFQohIKNI)
 
-[Why is Warren Buffett so rich? (Crony capitalism, anyone?) | Nomad Capitalist](http://nomadcapitalist.com/2014/04/21/warren-buffett-americas-biggest-crony-capitalist/)
+[Why is Warren Buffett so rich? (Crony capitalism, anyone?) . Nomad Capitalist](http://nomadcapitalist.com/2014/04/21/warren-buffett-americas-biggest-crony-capitalist/)
 
 [Why Islamists Hate Homosexuals](http://thefederalist.com/2016/06/14/why-islamists-hate-homosexuals/)
 
-[Why Isn't Rent in Tokyo Out of Control? | Foundation for Economic Education](https://fee.org/articles/why-isnt-rent-in-tokyo-out-of-control/?utm_source=facebook&utm_medium=social&utm_content=general+16%2C+activations%2C+tokyo+rent+control%2C+8%2F17%2F2016&utm_campaign=general+16)
+[Why Isn't Rent in Tokyo Out of Control? . Foundation for Economic Education](https://fee.org/articles/why-isnt-rent-in-tokyo-out-of-control/?utm_source=facebook&utm_medium=social&utm_content=general+16%2C+activations%2C+tokyo+rent+control%2C+8%2F17%2F2016&utm_campaign=general+16)
 
 [Why you shouldn't trust successful people's advice - YouTube](https://www.youtube.com/watch?v=1k7jeQQdqPA)
 
@@ -5024,19 +5020,19 @@ Bookmarks của Thịnh Phạm
 
 [Immigrants! Don't Vote for What You Fled - YouTube](https://www.youtube.com/watch?v=10uX2EhSflA)
 
-[Socialism for the Uninformed by Dr. Thomas Sowell | Creators Syndicate](https://www.creators.com/read/thomas-sowell/05/16/socialism-for-the-uninformed)
+[Socialism for the Uninformed by Dr. Thomas Sowell . Creators Syndicate](https://www.creators.com/read/thomas-sowell/05/16/socialism-for-the-uninformed)
 
 [Hanoi spends $2 million on CNN ads to promote tourism, investment - YouTube](https://www.youtube.com/watch?v=1Knz54LFf9E&app=desktop)
 
-[In the Debate over Capitalism and the Poor, the Score Is: Thomas Sowell 1 – Pope Francis 0 | International Liberty](https://danieljmitchell.wordpress.com/2015/09/24/in-the-debate-over-capitalism-and-the-poor-the-score-is-thomas-sowell-1-pope-francis-0/)
+[In the Debate over Capitalism and the Poor, the Score Is: Thomas Sowell 1 – Pope Francis 0 . International Liberty](https://danieljmitchell.wordpress.com/2015/09/24/in-the-debate-over-capitalism-and-the-poor-the-score-is-thomas-sowell-1-pope-francis-0/)
 
-[The Cologne Cathedral Under Attack | Frontpage Mag](http://www.frontpagemag.com/fpm/261546/cologne-cathedral-under-attack-stephen-brown)
+[The Cologne Cathedral Under Attack . Frontpage Mag](http://www.frontpagemag.com/fpm/261546/cologne-cathedral-under-attack-stephen-brown)
 
 [Trung tâm Âu Châu bị tấn công - Nguoi Viet Daily News](http://www.nguoi-viet.com/nhin-tu-hoa-ky/trung-tam-au-chau-bi-tan-cong/)
 
 [TT Obama: Thành Công Và Thất Bại: Phần 1 – Chính Trị Và Xã Hội - Bình Luận - Việt Báo Online](https://vietbao.com/a262116/tt-obama-thanh-cong-va-that-bai-phan-1-chinh-tri-va-xa-hoi)
 
-[Learn Liberty | Highlights from the Reddit AMA with Professor Antony Davies](http://www.learnliberty.org/blog/highlights-from-the-reddit-ama-with-professor-antony-davies/?utm_source=facebook&utm_medium=social&utm_content=blog+17%2C+Davies+AMA+highlights%2C+question%2C+12%2F26%2F2016&utm_campaign=blog+17)
+[Learn Liberty . Highlights from the Reddit AMA with Professor Antony Davies](http://www.learnliberty.org/blog/highlights-from-the-reddit-ama-with-professor-antony-davies/?utm_source=facebook&utm_medium=social&utm_content=blog+17%2C+Davies+AMA+highlights%2C+question%2C+12%2F26%2F2016&utm_campaign=blog+17)
 
 [How James Madison Saved The Constitution By Writing The Bill Of Rights](http://thefederalist.com/2016/12/28/james-madison-saved-constitution-month-writing-bill-rights/)
 
@@ -5046,7 +5042,7 @@ Bookmarks của Thịnh Phạm
 
 [Ku Búa ủng hộ tự do, chủ nghĩa tư bản, kinh tế thị trường, chính sách ngoại giao cứng rắn.](https://www.facebook.com/kubua19891/posts/382569745427401?pnref=story)
 
-[John Kerry’s record of ugly betrayals – from Hanoi to Jerusalem | New York Post](http://nypost.com/2016/12/28/john-kerrys-record-of-ugly-betrayals-from-hanoi-to-jerusalem/)
+[John Kerry’s record of ugly betrayals – from Hanoi to Jerusalem . New York Post](http://nypost.com/2016/12/28/john-kerrys-record-of-ugly-betrayals-from-hanoi-to-jerusalem/)
 
 [Châu Âu tan nát vì Muhammed giáo. Citizen Warrior: Europe's Year of Self-Destruction](http://www.citizenwarrior.com/2016/12/europes-year-of-self-destruction.html)
 
@@ -5126,7 +5122,7 @@ Bookmarks của Thịnh Phạm
 
 [Đánh thuế người giàu, chủ nghĩa nhân danh của bọn cánh tả-trích Planning for freedom của von Mises](https://www.facebook.com/groups/300880276915116/permalink/410617359274740/)
 
-[Julian Assange says he is '1,000% confident' Russia was not the source for hacked emails | Daily Mail Online](http://www.dailymail.co.uk/news/article-4083580/Assange-says-1-000-confident-Russia-NOT-source-hacked-Democratic-emails-published-WikiLeaks.html)
+[Julian Assange says he is '1,000% confident' Russia was not the source for hacked emails . Daily Mail Online](http://www.dailymail.co.uk/news/article-4083580/Assange-says-1-000-confident-Russia-NOT-source-hacked-Democratic-emails-published-WikiLeaks.html)
 
 [Kinh doanh là gì?-Charles Koch.](https://www.facebook.com/groups/300880276915116/permalink/410768509259625/)
 
@@ -5158,15 +5154,15 @@ Bookmarks của Thịnh Phạm
 
 [Vì sao giảm thuế có thể giúp gia tăng ngân sách - Cafe Ku Búa](http://cafekubua.com/2015/12/22/vi-sao-giam-thue-co-the-giup-gia-tang-ngan-sach/)
 
-[Mises, The Theory of Money and Credit, Part II, Chapters 13-14 | Library of Economics and Liberty](http://www.econlib.org/library/Mises/msT5.html#Part II,Ch.14)
+[Mises, The Theory of Money and Credit, Part II, Chapters 13-14 . Library of Economics and Liberty](http://www.econlib.org/library/Mises/msT5.html#Part II,Ch.14)
 
 [True Money Supply - Mises Wiki, the global repository of classical-liberal thought](https://wiki.mises.org/wiki/True_Money_Supply)
 
 [Medium of exchange - Mises Wiki, the global repository of classical-liberal thought](https://wiki.mises.org/wiki/Medium_of_exchange)
 
-[What Has Government Done to Our Money? | Mises Institute](https://mises.org/library/what-has-government-done-our-money)
+[What Has Government Done to Our Money? . Mises Institute](https://mises.org/library/what-has-government-done-our-money)
 
-[KINH TẾ HỌC VĨ MÔ | Bản chất của cân bằng trên THỊ TRƯỜNG TÀI CHÍNH - YouTube](https://www.youtube.com/watch?v=f9Okd2edpwA)
+[KINH TẾ HỌC VĨ MÔ . Bản chất của cân bằng trên THỊ TRƯỜNG TÀI CHÍNH - YouTube](https://www.youtube.com/watch?v=f9Okd2edpwA)
 
 [There's a lot more where this comes from in the Democratic Party's not-so-distant history.](https://www.facebook.com/prageru/photos/ms.c.eJwty8kRwEAIA8GMXJIAAfkn5mP9neqhukyQy5zCXFSnqChZNE~;AviKAX0gp1z6HKr~;ADsGsGfsGyq0Q4A~-~-.bps.a.187956274580570.43905.127225910653607/1275610119148508/?type=3&theater)
 
@@ -5176,11 +5172,11 @@ Bookmarks của Thịnh Phạm
 
 [50 điều xảy ra khi Việt Nam là một cường quốc - Cafe Ku Búa](http://cafekubua.com/2017/01/08/50-dieu-xay-ra-khi-viet-nam-la-mot-cuong-quoc/)
 
-[The Myth of Under-provision of Science by the Free Market | Mises Wire](https://mises.org/blog/myth-under-provision-science-free-market)
+[The Myth of Under-provision of Science by the Free Market . Mises Wire](https://mises.org/blog/myth-under-provision-science-free-market)
 
-[The Myth of Under-provision of Science by the Free Market | The Cobden Centre](http://www.cobdencentre.org/2011/01/science-by-the-free-market/)
+[The Myth of Under-provision of Science by the Free Market . The Cobden Centre](http://www.cobdencentre.org/2011/01/science-by-the-free-market/)
 
-[The Free Market and Scientific Research | Foundation for Economic Education](https://fee.org/articles/the-free-market-and-scientific-research/)
+[The Free Market and Scientific Research . Foundation for Economic Education](https://fee.org/articles/the-free-market-and-scientific-research/)
 
 [It's Free Market Time For Science, Cut Publicly Funded Science](https://mic.com/articles/3169/it-s-free-market-time-for-science-cut-publicly-funded-science#.TOk3ImFmv)
 
@@ -5192,7 +5188,7 @@ Bookmarks của Thịnh Phạm
 
 [Thông Luận: Trung Quốc phải chăng chỉ khủng hoảng về kinh tế? (Nguyễn Gia Kiểng)](http://thongluan2016.blogspot.com/2016/12/trung-quoc-phai-chang-chi-khung-hoang.html)
 
-[Adam Smith on the functions of government | Lagrangian Republican Association](https://republicoflagrangia.org/2013/04/06/adam-smith-on-the-functions-of-government/)
+[Adam Smith on the functions of government . Lagrangian Republican Association](https://republicoflagrangia.org/2013/04/06/adam-smith-on-the-functions-of-government/)
 
 [Thông Luận: Thoát vòng luẩn quẩn để là chính mình và có sức mạnh (Nguyễn Gia Kiểng)](https://thongluan2016.blogspot.com/2016/12/thoat-vong-luan-quan-e-la-chinh-minh-va.html)
 
@@ -5204,19 +5200,19 @@ Bookmarks của Thịnh Phạm
 
 [Articles: Race: The Ultimate Weapon of the Left](http://www.americanthinker.com/articles/2011/11/race_the_ultimate_weapon_of_the_left.html)
 
-[How the Cultural Left Turned Racism into a Meaningless Term | Beyond Highbrow - Robert Lindsay](https://robertlindsay.wordpress.com/2016/09/19/how-the-cultural-left-turned-racism-into-a-meaningless-term/)
+[How the Cultural Left Turned Racism into a Meaningless Term . Beyond Highbrow - Robert Lindsay](https://robertlindsay.wordpress.com/2016/09/19/how-the-cultural-left-turned-racism-into-a-meaningless-term/)
 
-[Why "Racism = Prejudice + Power" Is The Wrong Way to Approach the Problems of Racism | Wet Asphalt](http://www.wetasphalt.com/content/why-racism-prejudice-power-wrong-way-approach-problems-racism)
+[Why "Racism = Prejudice + Power" Is The Wrong Way to Approach the Problems of Racism . Wet Asphalt](http://www.wetasphalt.com/content/why-racism-prejudice-power-wrong-way-approach-problems-racism)
 
-[Progressivism & The Left’s Racist History | National Review](http://www.nationalreview.com/article/433053/progressivism-lefts-racist-history)
+[Progressivism & The Left’s Racist History . National Review](http://www.nationalreview.com/article/433053/progressivism-lefts-racist-history)
 
-[When racism is the law | SocialistWorker.org](https://socialistworker.org/2012/04/04/when-racism-is-the-law)
+[When racism is the law . SocialistWorker.org](https://socialistworker.org/2012/04/04/when-racism-is-the-law)
 
-[5 Statistics That Show Voter ID Is Not Racist | Daily Wire](http://www.dailywire.com/news/7992/5-statistics-show-voter-id-not-racist-aaron-bandler)
+[5 Statistics That Show Voter ID Is Not Racist . Daily Wire](http://www.dailywire.com/news/7992/5-statistics-show-voter-id-not-racist-aaron-bandler)
 
-[Who Originated the Term “Racist” And Why? | revisedhistory](https://revisedhistory.wordpress.com/2012/10/18/who-originated-the-term-racist-and-why/)
+[Who Originated the Term “Racist” And Why? . revisedhistory](https://revisedhistory.wordpress.com/2012/10/18/who-originated-the-term-racist-and-why/)
 
-[National Review's Racism Denial, Then and Now | New Republic](https://newrepublic.com/article/122095/national-reviews-racism-denial-then-and-now)
+[National Review's Racism Denial, Then and Now . New Republic](https://newrepublic.com/article/122095/national-reviews-racism-denial-then-and-now)
 
 [Sam Francis: Origins of the Words ‘Racism’ and ‘Racist’](http://www.heretical.com/miscella/racism.html)
 
@@ -5224,7 +5220,7 @@ Bookmarks của Thịnh Phạm
 
 [Thông Luận: Những điểm yếu của Phong trào dân chủ Việt Nam (Việt Hoàng) (Phần 2b)](http://thongluan2016.blogspot.com/2016/12/nhung-iem-yeu-cua-phong-trao-dan-chu_34.html)
 
-[Tình Báo Mỹ Lại Tuyên Truyền Chống Mỹ? (1/4) | Người Việt TV](http://www.nguoiviettv.com/tinh-bao-my-lai-tuyen-truyen-chong-my-14/)
+[Tình Báo Mỹ Lại Tuyên Truyền Chống Mỹ? (1/4) . Người Việt TV](http://www.nguoiviettv.com/tinh-bao-my-lai-tuyen-truyen-chong-my-14/)
 
 [Châu Âu nơi mà con người luôn tự cho mình là con người của tự do , con người của nhân bản.Châu Âu là nơi là đấu tranh giữ một Châu Âu thống nhất, một siêu Âu châu và dân tộc ly khai luôn diễn ra không ngừng nghỉ.](https://www.facebook.com/groups/300880276915116/permalink/415609455442197/)
 
@@ -5232,7 +5228,7 @@ Bookmarks của Thịnh Phạm
 
 [Adam Smith Quotes — Adam Smith Institute](https://www.adamsmith.org/adam-smith-quotes/)
 
-[Browse Book Archives by Author, S | Library of Economics and Liberty](http://www.econlib.org/library/classicsauS.html)
+[Browse Book Archives by Author, S . Library of Economics and Liberty](http://www.econlib.org/library/classicsauS.html)
 
 [Bàn về tự do lâu quá ko viết gì, làm 1 bài thể hiện quan điểm cá nhân, wellcome mọi loại thảo luận nhưng vui lòng lịch sự nhé](https://www.facebook.com/groups/300880276915116/permalink/415655705437572/)
 
@@ -5240,9 +5236,9 @@ Bookmarks của Thịnh Phạm
 
 [5 Lý Do Để Bỏ Nghĩa Vụ Quân Sự và Chuyên Nghiệp Hóa Quân Đội - Cafe Ku Búa](http://cafekubua.com/2016/01/24/5-ly-do-de-bo-nghia-vu-quan-su-va-chuyen-nghiep-hoa-quan-doi/)
 
-[Negative Income Tax, by Jodie T. Allen: The Concise Encyclopedia of Economics | Library of Economics and Liberty](http://www.econlib.org/library/Enc1/NegativeIncomeTax.html)
+[Negative Income Tax, by Jodie T. Allen: The Concise Encyclopedia of Economics . Library of Economics and Liberty](http://www.econlib.org/library/Enc1/NegativeIncomeTax.html)
 
-[Fallacies of the Negative Income Tax | Mises Institute](https://mises.org/library/fallacies-negative-income-tax)
+[Fallacies of the Negative Income Tax . Mises Institute](https://mises.org/library/fallacies-negative-income-tax)
 
 [Truyện:Ỷ Thiên Đồ Long ký - Hồi 15 – Truyện kiếm hiệp](http://truyenkiemhiep.com.vn/Truy%E1%BB%87n:%E1%BB%B6_Thi%C3%AAn_%C4%90%E1%BB%93_Long_k%C3%BD_-_H%E1%BB%93i_15)
 
@@ -5250,25 +5246,25 @@ Bookmarks của Thịnh Phạm
 
 [IQ differences in races - how it happened](http://www.sq.4mg.com/LynnIQdiff.htm)
 
-[World ranking of countries by their average IQ | IQ Research+](https://iq-research.info/en/page/average-iq-by-country)
+[World ranking of countries by their average IQ . IQ Research+](https://iq-research.info/en/page/average-iq-by-country)
 
 [Nói về việc SJC không chịu mua vàng 1 chữ - Cafe Ku Búa](http://cafekubua.com/2017/01/17/noi-ve-viec-sjc-khong-chiu-mua-vang-1-chu/)
 
-[Boualem Sansal: “France is Already Well on the Way to Her Islamization” | Gates of Vienna](http://gatesofvienna.net/2017/01/boualem-sansal-france-is-already-well-on-the-way-to-her-islamization/#more-41975)
+[Boualem Sansal: “France is Already Well on the Way to Her Islamization” . Gates of Vienna](http://gatesofvienna.net/2017/01/boualem-sansal-france-is-already-well-on-the-way-to-her-islamization/#more-41975)
 
-[Terrorist Groups: American Charities Fund Them, and Should Stop | National Review](http://www.nationalreview.com/article/443773/terrorist-groups-american-charities-fund-ufa-hamas-dawah-social-services?utm_source=Middle+East+Forum&utm_campaign=d4f0d82827-WESTROP_CAMPAIGN_2017_01_14&utm_medium=email&utm_term=0_086cfd423c-d4f0d82827-33684729&goal=0_086cfd423c-d4f0d82827-33684729)
+[Terrorist Groups: American Charities Fund Them, and Should Stop . National Review](http://www.nationalreview.com/article/443773/terrorist-groups-american-charities-fund-ufa-hamas-dawah-social-services?utm_source=Middle+East+Forum&utm_campaign=d4f0d82827-WESTROP_CAMPAIGN_2017_01_14&utm_medium=email&utm_term=0_086cfd423c-d4f0d82827-33684729&goal=0_086cfd423c-d4f0d82827-33684729)
 
 [Chi phí của sự thiếu trung thực - Cafe Ku Búa](http://cafekubua.com/2016/07/29/chi-phi-cua-su-thieu-trung-thuc/)
 
 [CÁCH BIỆT XÃ HỘI TĂNG TRƯỞNG DƯỚI NHIỆM KỲ OBAMA - Nhịp Cầu Thế Giới Online](http://nhipcauthegioi.hu/Viet-Nam-The-gioi/CACH-BIET-XA-HOI-TANG-TRUONG-DUOI-NHIEM-KY-OBAMA-5518.html)
 
-[Why Israeli Jews are Conservative and American Jews are Leftist | Frontpage Mag](http://www.frontpagemag.com/fpm/262159/why-israeli-jews-are-conservative-and-american-daniel-greenfield)
+[Why Israeli Jews are Conservative and American Jews are Leftist . Frontpage Mag](http://www.frontpagemag.com/fpm/262159/why-israeli-jews-are-conservative-and-american-daniel-greenfield)
 
 [Holcombe\_Cronyism\_web.pdf](https://www.mercatus.org/system/files/Holcombe_Cronyism_web.pdf)
 
-[Hamilton & Jefferson: Moral Opposites | National Review](http://www.nationalreview.com/article/426364/hamilton-and-jefferson-deserving-and-deserter-m-d-aeschliman)
+[Hamilton & Jefferson: Moral Opposites . National Review](http://www.nationalreview.com/article/426364/hamilton-and-jefferson-deserving-and-deserter-m-d-aeschliman)
 
-[Religous Liberty -- America Threatened by Cult of Secularism | National Review](http://www.nationalreview.com/article/437414/lose-story-lose-culture)
+[Religous Liberty -- America Threatened by Cult of Secularism . National Review](http://www.nationalreview.com/article/437414/lose-story-lose-culture)
 
 [yes-atheism-and-conservatism-are-compatible](http://www.nationalreview.com/article/372060/yes-atheism-and-conservatism-are-compatible-charles-c-w-cooke)
 
@@ -5276,27 +5272,27 @@ Bookmarks của Thịnh Phạm
 
 [Citizen Warrior: Why France?](http://www.citizenwarrior.com/2015/11/why-france.html)
 
-[Thomas Jefferson and the Origins of US Secular Humanism - The Course of Reason Blog - CFI On Campus | Organizing atheist, freethinking, skeptical, and secular humanist students and faculty worldwide](http://www.centerforinquiry.net/oncampus/blog/entry/thomas_jefferson_and_the_origins_of_us_secular_humanism/)
+[Thomas Jefferson and the Origins of US Secular Humanism - The Course of Reason Blog - CFI On Campus . Organizing atheist, freethinking, skeptical, and secular humanist students and faculty worldwide](http://www.centerforinquiry.net/oncampus/blog/entry/thomas_jefferson_and_the_origins_of_us_secular_humanism/)
 
 [Multiculturism and European desecularization - Conservapedia](http://www.conservapedia.com/Multiculturism_and_European_desecularization)
 
 [democracy and growth Robert Barro](http://faculty.nps.edu/relooney/BarroDemocracy.pdf)
 
-[Europe, Islam and Radical Secularism |](https://geopoliticalfutures.com/europe-islam-and-radical-secularism/)
+[Europe, Islam and Radical Secularism .](https://geopoliticalfutures.com/europe-islam-and-radical-secularism/)
 
 [Review: Pierre Manent, ‘Beyond Radical Secularism’](http://freebeacon.com/culture/vive-la-resistance/)
 
-[Unforced Errors and Legitimacy | commentary](https://www.commentarymagazine.com/politics-ideas/trump-unforced-errors-and-legitimacy/)
+[Unforced Errors and Legitimacy . commentary](https://www.commentarymagazine.com/politics-ideas/trump-unforced-errors-and-legitimacy/)
 
 [Những người đồng tính nam (gay) biểu tình phản đối chiến tranh Việt Nam tại Miami, Florida 21-23 tháng 8 năm 1972 tạiĐại hội Đảng Cộng hòa](https://www.facebook.com/hoilichsuhiendai/photos/a.686276584864856.1073741828.686225611536620/712567655569082/?type=3&theater)
 
 [The Left is anti-secularism. Do not confuse today's left with that of the 1960s. - Reader comments for Gatestone Institute](https://www.gatestoneinstitute.org/comments/76486)
 
-[Secular Conservatives Think America Can Survive the Death of God | National Review](http://www.nationalreview.com/article/433652/secular-conservatives-think-america-can-survive-death-god)
+[Secular Conservatives Think America Can Survive the Death of God . National Review](http://www.nationalreview.com/article/433652/secular-conservatives-think-america-can-survive-death-god)
 
 [The Jefferson Bible](http://uuhouston.org/files/The_Jefferson_Bible.pdf)
 
-[Secular Religion & Identity Politics on the Left | National Review](http://www.nationalreview.com/article/438023/secular-religion-identity-politics-left)
+[Secular Religion & Identity Politics on the Left . National Review](http://www.nationalreview.com/article/438023/secular-religion-identity-politics-left)
 
 [Thomas jefferson · Secular Right](http://secularright.org/SR/wordpress/tag/thomas-jefferson/)
 
@@ -5308,13 +5304,13 @@ Bookmarks của Thịnh Phạm
 
 [WATCH: 'Angela Merkel You Have Killed Germany!' – 16 Year Old Girl's Migrant Fears Video That Some Claim Facebook Are 'Censoring'](http://www.breitbart.com/london/2016/01/22/16-year-old-girls-migrant-fears-video-keeps-disappearing-off-facebook/)
 
-[F.A. Hayek and the Concept of Coercion | Mises Institute](https://mises.org/library/fa-hayek-and-concept-coercion)
+[F.A. Hayek and the Concept of Coercion . Mises Institute](https://mises.org/library/fa-hayek-and-concept-coercion)
 
-[If You Really Want to Help the Poor, Remember Milton Friedman | PERC – The Property and Environment Research Center](http://www.perc.org/articles/if-you-really-want-help-poor-remember-milton-friedman)
+[If You Really Want to Help the Poor, Remember Milton Friedman . PERC – The Property and Environment Research Center](http://www.perc.org/articles/if-you-really-want-help-poor-remember-milton-friedman)
 
-[In The Year 2016, 90,000 Christians Were Butchered | Walid Shoebat](http://shoebat.com/2016/12/31/in-the-year-2016-90000-christians-were-butchered/)
+[In The Year 2016, 90,000 Christians Were Butchered . Walid Shoebat](http://shoebat.com/2016/12/31/in-the-year-2016-90000-christians-were-butchered/)
 
-[Quotations from Thomas Sowell - one of the greatest living economists - AEI | Carpe Diem Blog » AEIdeas](https://www.aei.org/publication/quotations-from-thomas-sowell-one-of-the-greatest-economists-alive-today/)
+[Quotations from Thomas Sowell - one of the greatest living economists - AEI . Carpe Diem Blog » AEIdeas](https://www.aei.org/publication/quotations-from-thomas-sowell-one-of-the-greatest-economists-alive-today/)
 
 [Nói Mà Nghe - Phản Động Ác Ghê - Cafe Ku Búa](http://cafekubua.com/2017/01/15/noi-ma-nghe-phan-dong-ac-ghe/)
 
@@ -5336,7 +5332,7 @@ Bookmarks của Thịnh Phạm
 
 [Những sự khác biệt giữa Đảng Dân Chủ và Đảng Cộng Hòa - Cafe Ku Búa](http://cafekubua.com/2017/01/18/nhung-su-khac-biet-giua-dang-dan-chu-va-dang-cong-hoa/)
 
-[Intellectuals and Society by Thomas Sowell | Capitalism Magazine](http://capitalismmagazine.com/2016/09/intellectuals-and-society-by-thomas-sowell/)
+[Intellectuals and Society by Thomas Sowell . Capitalism Magazine](http://capitalismmagazine.com/2016/09/intellectuals-and-society-by-thomas-sowell/)
 
 [Book Review: 'Wealth, Poverty, and Politics' by Thomas Sowell - Breitbart](http://www.breitbart.com/big-government/2015/10/05/book-review-wealth-poverty-politics-thomas-sowell/)
 
@@ -5354,13 +5350,13 @@ Bookmarks của Thịnh Phạm
 
 [Cuộc Khủng Hoảng Tài Chánh - Bình Luận - Việt Báo Online](https://vietbao.com/a121485/cuoc-khung-hoang-tai-chanh)
 
-[Thời kì bản lề -Thư 81A | Trần Huỳnh Duy Thức](https://tranfami.wordpress.com/2017/02/06/thoi-ki-ban-le-thu-81a/#more-1966)
+[Thời kì bản lề -Thư 81A . Trần Huỳnh Duy Thức](https://tranfami.wordpress.com/2017/02/06/thoi-ki-ban-le-thu-81a/#more-1966)
 
 [dainamax tribune: Về Nghệ Thuật Lãnh Đạo](http://dainamaxtribune.blogspot.fr/2017/01/ve-nghe-thuat-lanh-ao.html)
 
 [Khi Máu Chảy Đầy Đường - Bình Luận - Việt Báo Online](https://vietbao.com/a166988/khi-mau-chay-day-duong)
 
-[Intellectuals and Society | Frontpage Mag](http://www.frontpagemag.com/fpm/49650/intellectuals-and-society-robert-wargas)
+[Intellectuals and Society . Frontpage Mag](http://www.frontpagemag.com/fpm/49650/intellectuals-and-society-robert-wargas)
 
 [The Struggle to Save the Soviet Economy: Mikhail Gorbachev and the Collapse of the USSR on JSTOR](http://www.jstor.org/stable/10.5149/9781469630182_miller)
 
@@ -5368,7 +5364,7 @@ Bookmarks của Thịnh Phạm
 
 [Bí quyết cho thành công của kinh tế Đức - Cafe Ku Búa](http://cafekubua.com/2017/02/05/bi-quyet-cho-thanh-cong-cua-kinh-te-duc/)
 
-[The Truth about Trade in History | Cato Institute](https://www.cato.org/publications/commentary/truth-about-trade-history)
+[The Truth about Trade in History . Cato Institute](https://www.cato.org/publications/commentary/truth-about-trade-history)
 
 [Tiêu Thổ Kháng Chiến Chống Trump - Bình Luận - Việt Báo Online](https://vietbao.com/a263789/tieu-tho-khang-chien-chong-trump#.WJoCd14Myu4.facebook)
 
@@ -5382,7 +5378,7 @@ Bookmarks của Thịnh Phạm
 
 [The economics of abortion — Adam Smith Institute](https://www.adamsmith.org/blog/the-economics-of-abortion)
 
-[Donald Trump’s Executive Order Strategy -- Democratic & Media Opposition | National Review](http://www.nationalreview.com/corner/444430/donald-trumps-executive-order-strategy-democratic-media-opposition)
+[Donald Trump’s Executive Order Strategy -- Democratic & Media Opposition . National Review](http://www.nationalreview.com/corner/444430/donald-trumps-executive-order-strategy-democratic-media-opposition)
 
 [Giáo dục không đồng nghĩa với đến trường - YouTube](https://www.youtube.com/watch?v=T2es_BAo5RE)
 
@@ -5404,7 +5400,7 @@ Bookmarks của Thịnh Phạm
 
 [Milton Friedman on taxing the rich to help the poor - YouTube](https://www.youtube.com/watch?v=U-40tgrF8Jo)
 
-[Kinh tế học - Của cải của các Dân tộc - Adam Smith | THƯ VIỆN EBOOK (TVE-4U)](http://tve-4u.org/threads/cu%CC%89a-ca%CC%89i-cu%CC%89a-ca%CC%81c-dan-to%CC%A3c-adam-smith.27208/)
+[Kinh tế học - Của cải của các Dân tộc - Adam Smith . THƯ VIỆN EBOOK (TVE-4U)](http://tve-4u.org/threads/cu%CC%89a-ca%CC%89i-cu%CC%89a-ca%CC%81c-dan-to%CC%A3c-adam-smith.27208/)
 
 [\[Vietsub\] Chiến tranh Việt Nam - Phần 3 - Cuộc tổng tiến công Tết Mậu Thân (1968) - YouTube](https://www.youtube.com/watch?v=X5SV_zlaPuQ&list=PL9HmyQs4hf_glbZOJ5scLBpLgDv_490bo&index=3)
 
@@ -5462,13 +5458,13 @@ Bookmarks của Thịnh Phạm
 
 [Người Việt Nam đóng bao nhiêu thuế? - Cafe Ku Búa](http://cafekubua.com/2016/08/19/nguoi-viet-nam-dong-bao-nhieu-thue/)
 
-[Johnny Chung went into hiding, feared for life after confessing to illegal fundraising for Clintons | East-Asia-Intel](http://eastasiaintel.com/johnny-chung-went-into-hiding-feared-for-life-after-confessing-to-illegal-fundraising-for-clintons/)
+[Johnny Chung went into hiding, feared for life after confessing to illegal fundraising for Clintons . East-Asia-Intel](http://eastasiaintel.com/johnny-chung-went-into-hiding-feared-for-life-after-confessing-to-illegal-fundraising-for-clintons/)
 
 [Cây Dân chủ khó mọc trên đất Á](http://www.rfa.org/vietnamese/programs/EconomicForum/asian-democracy-in-slow-motion-nxn-02272017132520.html)
 
 [www.clarionproject.org/analysis/muslim-brotherhood-we’re-spending-5-million-pr-us](http://www.clarionproject.org/analysis/muslim-brotherhood-we%E2%80%99re-spending-5-million-pr-us)
 
-[Khủng bố cánh tả, Hồi Giáo The Terrorist Leader of the 'Women's Strike' | Frontpage Mag](http://www.frontpagemag.com/fpm/265948/terrorist-leader-womens-strike-joseph-klein#.WLaWDkwOBss.facebook)
+[Khủng bố cánh tả, Hồi Giáo The Terrorist Leader of the 'Women's Strike' . Frontpage Mag](http://www.frontpagemag.com/fpm/265948/terrorist-leader-womens-strike-joseph-klein#.WLaWDkwOBss.facebook)
 
 [Diễn văn của Donald Trump trước Quốc Hội Mỹ - 28/2/2017 - YouTube](https://www.youtube.com/watch?v=f5jb1YSJT6M)
 
@@ -5482,11 +5478,11 @@ Bookmarks của Thịnh Phạm
 
 [Sweden: Rape Capital of the West](https://www.gatestoneinstitute.org/5195/sweden-rape)
 
-[Highway Aggravation: The Case for Privatizing the Highways | Cato Institute](https://www.cato.org/publications/policy-analysis/highway-aggravation-case-privatizing-highways)
+[Highway Aggravation: The Case for Privatizing the Highways . Cato Institute](https://www.cato.org/publications/policy-analysis/highway-aggravation-case-privatizing-highways)
 
 [Lấn chiếm vỉa hè - vấn đề và giải pháp - Cafe Ku Búa](http://cafekubua.com/2017/03/03/van-de-via-van-de-va-giai-phap/)
 
-[Railway Socialism and Safety | Mises Institute](https://mises.org/library/railway-socialism-and-safety)
+[Railway Socialism and Safety . Mises Institute](https://mises.org/library/railway-socialism-and-safety)
 
 [Một Đảng Dân chủ Xã hội tại Việt Nam? - YouTube](https://www.youtube.com/watch?v=7IjHA-KloAg&t=901s)
 
@@ -5518,7 +5514,7 @@ Bookmarks của Thịnh Phạm
 
 [Sweden: Migrants Behead Woman, Murder Husband, Then Laugh About It - Geller Report](http://pamelageller.com/2017/03/migrants-behead-woman-murder-husband.html/?utm_source=dlvr.it&utm_medium=facebook)
 
-[Peter Schweizer: Trump vs. Clintons' Russia ties (guess who always got a free pass) | Fox News](http://www.foxnews.com/opinion/2017/03/03/peter-schweizer-trump-vs-clintons-russia-ties-guess-who-always-got-free-pass.html)
+[Peter Schweizer: Trump vs. Clintons' Russia ties (guess who always got a free pass) . Fox News](http://www.foxnews.com/opinion/2017/03/03/peter-schweizer-trump-vs-clintons-russia-ties-guess-who-always-got-free-pass.html)
 
 [Vì sao không nên đăng cai Olympic? - Cafe Ku Búa](http://cafekubua.com/2017/03/13/vi-sao-khong-nen-dang-cai-olympic/)
 
@@ -5540,7 +5536,7 @@ Bookmarks của Thịnh Phạm
 
 [Chuyện Khỉ Trong Cuộc Bầu Năm Khỉ - Báo Xuân 2017 - Việt Báo Online](https://vietbao.com/a264986/chuyen-khi-trong-cuoc-bau-nam-khi)
 
-[Socialism Requires a Dictator | Foundation for Economic Education](https://fee.org/articles/socialism-requires-a-dictator/)
+[Socialism Requires a Dictator . Foundation for Economic Education](https://fee.org/articles/socialism-requires-a-dictator/)
 
 [dainamax tribune: Chủ nghĩa Cộng sản – Tai họa Trăm năm](http://dainamaxtribune.blogspot.com/2017/03/chu-nghia-cong-san-tai-hoa-tram-nam.html)
 
@@ -5566,7 +5562,7 @@ Bookmarks của Thịnh Phạm
 
 [Chủ nghĩa Cộng sản – Tai họa Trăm năm](http://www.rfa.org/vietnamese/programs/EconomicForum/the-centennial-communism-disaster-nxn-03152017081529.html)
 
-[Some on the Left Now Criticize the Students They Created | RealClearPolitics](http://www.realclearpolitics.com/articles/2017/03/14/some_on_the_left_now_criticize_the_students_they_created__133333.html)
+[Some on the Left Now Criticize the Students They Created . RealClearPolitics](http://www.realclearpolitics.com/articles/2017/03/14/some_on_the_left_now_criticize_the_students_they_created__133333.html)
 
 [British activist speak the truth right after London terrorist attack (Engsub/Vietsub) - YouTube](https://www.youtube.com/watch?v=MviTJ7DsUGQ)
 
@@ -5590,7 +5586,7 @@ Bookmarks của Thịnh Phạm
 
 [The Purpose of Manufacturing Isn't to Create Jobs - Foundation for Economic Education - Working for a free and prosperous world](https://fee.org/articles/the-purpose-of-manufacturing-isnt-to-create-jobs/?utm_source=zapier&utm_medium=facebook)
 
-[Blueprint for Balance: A Federal Budget for Fiscal Year 2018 | The Heritage Foundation](http://www.heritage.org/budget-and-spending/report/blueprint-balance-federal-budget-fiscal-year-2018)
+[Blueprint for Balance: A Federal Budget for Fiscal Year 2018 . The Heritage Foundation](http://www.heritage.org/budget-and-spending/report/blueprint-balance-federal-budget-fiscal-year-2018)
 
 [Ngộ nhận về đánh thuế](http://www.vietconservative.com/2017/03/ngonhan-ve-anh-thue-toi-tu-hoi-tai-sao.html)
 
@@ -5606,7 +5602,7 @@ Bookmarks của Thịnh Phạm
 
 [Were American Soldiers Compassionate during the Vietnam War? – Cherries – A Vietnam War Novel](https://cherrieswriter.wordpress.com/2012/11/29/were-american-soldiers-compassionate-during-the-vietnam-war/)
 
-[Imprisoned Pakistani Christians offered release if they convert to Islam | Fox News](http://www.foxnews.com/world/2017/03/31/imprisoned-pakistani-christians-offered-release-if-convert-to-islam.html)
+[Imprisoned Pakistani Christians offered release if they convert to Islam . Fox News](http://www.foxnews.com/world/2017/03/31/imprisoned-pakistani-christians-offered-release-if-convert-to-islam.html)
 
 [China Plays Deaf - Michael P. Ramirez](http://www.michaelpramirez.com/china-plays-deaf.html)
 
@@ -5628,7 +5624,7 @@ Bookmarks của Thịnh Phạm
 
 [dainamax tribune: Tài Trợ Phát Triển và Lạm Dụng Dân Nghèo](http://dainamaxtribune.blogspot.com/2017/03/tai-tro-phat-trien-va-lam-dung-dan-ngheo.html#comment-form)
 
-[Learn Liberty | The skeptics are wrong. Religion and classical liberalism can coexist.](http://www.learnliberty.org/blog/the-skeptics-are-wrong-religion-and-classical-liberalism-can-coexist/)
+[Learn Liberty . The skeptics are wrong. Religion and classical liberalism can coexist.](http://www.learnliberty.org/blog/the-skeptics-are-wrong-religion-and-classical-liberalism-can-coexist/)
 
 [How the Market Is Already Repealing Obamacare - Foundation for Economic Education - Working for a free and prosperous world](https://fee.org/articles/how-the-market-is-already-repealing-obamacare/)
 
@@ -5636,7 +5632,7 @@ Bookmarks của Thịnh Phạm
 
 [Vì sao một xã hội đạo đức cần Thiên Chúa - Cafe Ku Búa](http://cafekubua.com/2017/03/23/neu-khong-co-chua-giet-nguoi-khong-sai/)
 
-[Researchers find China tried infiltrating companies lobbying Trump on trade | Ars Technica](https://arstechnica.com/security/2017/04/researchers-find-china-tried-infiltrating-companies-lobbying-trump-on-trade/)
+[Researchers find China tried infiltrating companies lobbying Trump on trade . Ars Technica](https://arstechnica.com/security/2017/04/researchers-find-china-tried-infiltrating-companies-lobbying-trump-on-trade/)
 
 ['War on Cops' author Heather Mac Donald shouted down at UCLA by hysterical Black Lives Matter protest - The College Fix](https://www.thecollegefix.com/post/32035/)
 
@@ -5644,11 +5640,11 @@ Bookmarks của Thịnh Phạm
 
 [Child rape is “part of our culture” says Islamic preacher in Denmark - Smith's Site](http://smithssite.com/2017/04/01/child-rape-part-culture-says-islamic-preacher-denmark/)
 
-[Ancient Laws, Modern Wars | RealClearPolitics](http://www.realclearpolitics.com/articles/2017/04/06/ancient_laws_modern_wars_133524.html)
+[Ancient Laws, Modern Wars . RealClearPolitics](http://www.realclearpolitics.com/articles/2017/04/06/ancient_laws_modern_wars_133524.html)
 
-[Susan Rice's Unraveling Web of Lies | Frontpage Mag](http://www.frontpagemag.com/fpm/266325/susan-rices-unraveling-web-lies-joseph-klein)
+[Susan Rice's Unraveling Web of Lies . Frontpage Mag](http://www.frontpagemag.com/fpm/266325/susan-rices-unraveling-web-lies-joseph-klein)
 
-[Sir Michael Caine hails Brexit FREEDOM: 'I'd rather be a poor master than a rich servant' | UK | News | Express.co.uk](http://www.express.co.uk/news/uk/788519/sir-michael-caine-brexit-freedom-poor-master-rich-servant-going-in-style)
+[Sir Michael Caine hails Brexit FREEDOM: 'I'd rather be a poor master than a rich servant' . UK . News . Express.co.uk](http://www.express.co.uk/news/uk/788519/sir-michael-caine-brexit-freedom-poor-master-rich-servant-going-in-style)
 
 [NHU NHƯỢC - 20 dấu hiệu của một đất nước nhu nhược - Cafe Ku Búa](http://cafekubua.com/2017/04/07/nhu-nhuoc-20-dau-hieu-cua-mot-dat-nuoc-nhu-nhuoc/)
 
@@ -5678,7 +5674,7 @@ Bookmarks của Thịnh Phạm
 
 [Thông Luận: Đọc Quỷ Cốc tử, suy nghĩ về thực trạng và số phận đen tối của Đảng Cộng sản Việt nam (Nguyễn Tiến Dân)](http://thongluan2016.blogspot.com/2017/04/oc-quy-coc-tu-suy-nghi-ve-thuc-trang-va.html)
 
-[Free Market: The Concise Encyclopedia of Economics | Library of Economics and Liberty](http://www.econlib.org/library/Enc/FreeMarket.html)
+[Free Market: The Concise Encyclopedia of Economics . Library of Economics and Liberty](http://www.econlib.org/library/Enc/FreeMarket.html)
 
 [Ten Free Market Economic Reasons To Be Thankful](https://www.forbes.com/sites/jeffreydorfman/2016/11/23/ten-free-market-economic-reasons-to-be-thankful/#7e77fe056db7)
 
@@ -5688,11 +5684,11 @@ Bookmarks của Thịnh Phạm
 
 [TinHoaThinhDon: Ngày Mai Việt Nam, Đất Nước Và Con Người. Việt Nam First-Ưu Tiên Việt Nam](http://tinhoathinhdon.blogspot.com/2017/03/ngay-mai-viet-nam-at-nuoc-va-con-nguoi.html)
 
-[‘Revealing’ John D. Rockefeller Quotes | Planet Infowars](http://planet.infowars.com/weird-news/revealing-john-d-rockefeller-quotes)
+[‘Revealing’ John D. Rockefeller Quotes . Planet Infowars](http://planet.infowars.com/weird-news/revealing-john-d-rockefeller-quotes)
 
 [John D. Rockefeller, Sr. Quote - Liberty Quotes Blog](http://quotes.liberty-tree.ca/quote_blog/John.D..Rockefeller.Quote.585E)
 
-[No Friend of the Poor | The Heritage Foundation](http://www.heritage.org/poverty-and-inequality/commentary/no-friend-the-poor?utm_source=facebook&utm_medium=social&utm_campaign=thf-fb)
+[No Friend of the Poor . The Heritage Foundation](http://www.heritage.org/poverty-and-inequality/commentary/no-friend-the-poor?utm_source=facebook&utm_medium=social&utm_campaign=thf-fb)
 
 [Thông Luận: Một cách nhìn cuộc chiến (TL 82) (Nguyễn Gia Kiểng)](https://thongluan2016.blogspot.com/2016/12/mot-cach-nhin-cuoc-chien-tl-82-nguyen.html)
 
@@ -5724,7 +5720,7 @@ Bookmarks của Thịnh Phạm
 
 [Articles: Can Islam ever be reformed?](http://www.americanthinker.com/articles/2017/04/can_islam_ever_be_reformed.html#.WQS1efXpzBk.facebook)
 
-[International Liberty | Restraining Government in America and Around the World](https://danieljmitchell.wordpress.com/)
+[International Liberty . Restraining Government in America and Around the World](https://danieljmitchell.wordpress.com/)
 
 [United Nations Elects Saudi Arabia to Women's Rights Commission](http://freebeacon.com/issues/united-nations-elects-saudi-arabia-womens-rights-commission/)
 
@@ -5742,7 +5738,7 @@ Bookmarks của Thịnh Phạm
 
 [Vì sao Hồi Giáo giàu hơn CS? - Cafe Ku Búa](http://cafekubua.com/2017/05/04/vi-sao-hoi-giao-giau-hon-cs/)
 
-['Tax Cuts for the Rich'?, by Dr. Thomas Sowell | Creators Syndicate](https://www.creators.com/read/thomas-sowell/05/17/tax-cuts-for-the-rich)
+['Tax Cuts for the Rich'?, by Dr. Thomas Sowell . Creators Syndicate](https://www.creators.com/read/thomas-sowell/05/17/tax-cuts-for-the-rich)
 
 [Bầu Cử Pháp - Le Pen khó gây bất ngờ - Cafe Ku Búa](http://cafekubua.com/2017/05/05/bau-cu-phap-le-pen-kho-gay-bat-ngo/)
 
@@ -5766,7 +5762,7 @@ Bookmarks của Thịnh Phạm
 
 [Chuyển Giao Công Nghệ Lỗi Thời - Bình Luận - Việt Báo Online](https://vietbao.com/a267449/chuyen-giao-cong-nghe-loi-thoi)
 
-[Obama's Climate Speech in Milan Offered Nothing New | National Review](http://www.nationalreview.com/article/447465/obama-climate-speech-milan-offered-nothing-new)
+[Obama's Climate Speech in Milan Offered Nothing New . National Review](http://www.nationalreview.com/article/447465/obama-climate-speech-milan-offered-nothing-new)
 
 [Chuyện 2 con mẹ bán thịt heo - Cafe Ku Búa](http://cafekubua.com/2017/05/12/chuyen-2-con-ban-thit-heo/)
 
@@ -5774,7 +5770,7 @@ Bookmarks của Thịnh Phạm
 
 [Using Social Security to Punish the Rich Doesn't Help the Poor - Foundation for Economic Education - Working for a free and prosperous world](https://fee.org/articles/using-social-security-to-punish-the-rich-doesnt-help-the-poor/?utm_source=zapier&utm_medium=facebook)
 
-[The Progressive Movement and the Transformation of American Politics | The Heritage Foundation](http://www.heritage.org/political-process/report/the-progressive-movement-and-the-transformation-american-politics?utm_source=facebook&utm_medium=social&utm_campaign=thf-fb)
+[The Progressive Movement and the Transformation of American Politics . The Heritage Foundation](http://www.heritage.org/political-process/report/the-progressive-movement-and-the-transformation-american-politics?utm_source=facebook&utm_medium=social&utm_campaign=thf-fb)
 
 [CON NGƯỜI VS CON VẬT - Ai quý hơn? - Cafe Ku Búa](http://cafekubua.com/2017/05/15/con-nguoi-vs-con-vat-ai-quy-hon/)
 
@@ -5820,19 +5816,19 @@ Bookmarks của Thịnh Phạm
 
 [Khác biệt chính trị cánh tả và cánh hữu - Trí thức VN](http://trithucvn.net/chuyen-de/khac-biet-chinh-tri-canh-ta-va-canh-huu.html)
 
-[Happy 87th birthday (June 30) to economist Thomas Sowell, one of the greatest living economists • AEI | Carpe Diem Blog » AEIdeas](http://www.aei.org/publication/happy-87th-birthday-june-30-to-economist-thomas-sowell-one-of-the-greatest-living-economists/)
+[Happy 87th birthday (June 30) to economist Thomas Sowell, one of the greatest living economists • AEI . Carpe Diem Blog » AEIdeas](http://www.aei.org/publication/happy-87th-birthday-june-30-to-economist-thomas-sowell-one-of-the-greatest-living-economists/)
 
 [Dân chủ cuội](http://www.rfa.org/vietnamese/news/blog/fake-democracy-nvb-01192016125441.html)
 
 [Việt Nam Vỡ Nợ… Ai Sẽ Gánh? - Cafe Ku Búa](http://cafekubua.com/2015/12/05/viet-nam-vo-no-ai-se-ganh/)
 
-[Ranking the States by Fiscal Condition 2017 Edition | Mercatus Center](https://www.mercatus.org/statefiscalrankings)
+[Ranking the States by Fiscal Condition 2017 Edition . Mercatus Center](https://www.mercatus.org/statefiscalrankings)
 
 [How a Young Black Man Became a Race Realist - American Renaissance](https://www.amren.com/features/2017/01/young-black-man-became-race-realist/)
 
 [Milton Friedman - Trách nhiệm xã hội của doanh nghiệp là để tăng lợi nhuận cho cổ đông - Cafe Ku Búa](http://cafekubua.com/2016/01/20/milton-friedman-trach-nhiem-xa-hoi-cua-doanh-nghiep-la-de-tang-loi-nhuan-cho-co-dong/)
 
-[Learn Liberty | Income Inequality or Income Mobility: For What Should We Fight?](http://www.learnliberty.org/blog/income-inequality-or-income-mobility-for-what-should-we-fight/)
+[Learn Liberty . Income Inequality or Income Mobility: For What Should We Fight?](http://www.learnliberty.org/blog/income-inequality-or-income-mobility-for-what-should-we-fight/)
 
 [Làm thế nào kết nối những kiến thức trong não bộ lại với nhau để trở nên thông tuệ hơn?](http://cafebiz.vn/lam-the-nao-ket-noi-nhung-kien-thuc-trong-nao-bo-lai-voi-nhau-de-tro-nen-thong-tue-hon-20170716075933997.chn)
 
@@ -5842,7 +5838,7 @@ Bookmarks của Thịnh Phạm
 
 [4 bước để làm giàu trong nền kinh tế tư bản](https://www.facebook.com/cafekubua/photos/a.658678404265677.1073741827.658658857600965/819624511504398/?type=1&theater)
 
-[Lecture: Welcome to the Principles of Economics | Getting Started: Welcome to Choice, Scarcity, Opportunity Cost & Production Possibilities | Econ 1 Courseware | Stanford Lagunita](https://lagunita.stanford.edu/courses/course-v1:HumanitiesSciences+Econ1+Summer2017/courseware/587753f024b7428db55185117eab48d2/1fda2d9eb33843969449a8ae324dacd4/)
+[Lecture: Welcome to the Principles of Economics . Getting Started: Welcome to Choice, Scarcity, Opportunity Cost & Production Possibilities . Econ 1 Courseware . Stanford Lagunita](https://lagunita.stanford.edu/courses/course-v1:HumanitiesSciences+Econ1+Summer2017/courseware/587753f024b7428db55185117eab48d2/1fda2d9eb33843969449a8ae324dacd4/)
 
 [Filibuster: Mặt Trái Chính Trị Mỹ - Bình Luận - Việt Báo Daily Online](https://vietbao.com/a266582/filibuster-mat-trai-chinh-tri-my)
 
@@ -5876,11 +5872,11 @@ Bookmarks của Thịnh Phạm
 
 [The Informed Heart by Bruno Bettelheim — Reviews, Discussion, Bookclubs, Lists](https://www.goodreads.com/book/show/879753.The_Informed_Heart)
 
-[How Laissez-Faire Made Sweden Rich | Libertarianism.org](https://www.libertarianism.org/publications/essays/how-laissez-faire-made-sweden-rich)
+[How Laissez-Faire Made Sweden Rich . Libertarianism.org](https://www.libertarianism.org/publications/essays/how-laissez-faire-made-sweden-rich)
 
-[New study finds that minimum wage hikes are great news for robot workers • AEI | Pethokoukis Blog » AEIdeas](http://www.aei.org/publication/new-study-finds-that-minimum-wage-hikes-are-great-news-for-robot-workers/)
+[New study finds that minimum wage hikes are great news for robot workers • AEI . Pethokoukis Blog » AEIdeas](http://www.aei.org/publication/new-study-finds-that-minimum-wage-hikes-are-great-news-for-robot-workers/)
 
-[Divided America -- People Must Connect for America to Survive | National Review](http://www.nationalreview.com/article/448643/divided-america-people-must-connect-america-survive)
+[Divided America -- People Must Connect for America to Survive . National Review](http://www.nationalreview.com/article/448643/divided-america-people-must-connect-america-survive)
 
 [DOS Kapital: Has Antitrust Action Against Microsoft Created Value in the Computer Industry? by George Bittlingmayer, Thomas W. Hazlett :: SSRN](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=99832)
 
@@ -5892,7 +5888,7 @@ Bookmarks của Thịnh Phạm
 
 [Lãi suất tại Hoa Kỳ](https://www.facebook.com/xuan.nguyen.520562/posts/10203913774442752)
 
-[Michelle Malkin: The Red York Times — First In Fake News | Stock News & Stock Market Analysis - IBD](http://www.investors.com/politics/columnists/michelle-malkin-the-red-york-times-first-in-fake-news/)
+[Michelle Malkin: The Red York Times — First In Fake News . Stock News & Stock Market Analysis - IBD](http://www.investors.com/politics/columnists/michelle-malkin-the-red-york-times-first-in-fake-news/)
 
 [dainamax tribune: Vấn Đề Trung Quốc Của Thế Giới và Của Việt Nam](http://dainamaxtribune.blogspot.com/2012/04/van-e-trung-quoc-cua-gioi-va-cua-viet.html)
 
@@ -5942,7 +5938,7 @@ Bookmarks của Thịnh Phạm
 
 [Tristan Kenderdine: Caspian Sea is China's best bet for Belt and Road - Nikkei Asian Review](https://asia.nikkei.com/Viewpoints/Tristan-Kenderdine/Caspian-Sea-is-China-s-best-bet-for-Belt-and-Road)
 
-[Israelis Demanded McMaster/Obama NSC Pro-Terrorist Muslim Appointee Leave Meeting | Frontpage Mag](http://www.frontpagemag.com/point/267864/israelis-demanded-mcmasterobama-nsc-pro-terrorist-daniel-greenfield)
+[Israelis Demanded McMaster/Obama NSC Pro-Terrorist Muslim Appointee Leave Meeting . Frontpage Mag](http://www.frontpagemag.com/point/267864/israelis-demanded-mcmasterobama-nsc-pro-terrorist-daniel-greenfield)
 
 [Curfews, Obligatory Prayers, Whippings: Hard-Line Islam Emerges in Indonesia - WSJ](https://www.wsj.com/articles/indonesia-once-a-model-of-moderate-islam-slides-toward-a-harder-line-1505311774?mod=e2fb)
 
@@ -5954,7 +5950,7 @@ Bookmarks của Thịnh Phạm
 
 [The one single economic fact we have to explain — Adam Smith Institute](https://www.adamsmith.org/blog/the-one-single-economic-fact-we-have-to-explain)
 
-[Học Viện Công Dân | Institute for Civic Education in Viet Nam. Thiện Trần giới thiệu.](http://icevn.org/)
+[Học Viện Công Dân . Institute for Civic Education in Viet Nam. Thiện Trần giới thiệu.](http://icevn.org/)
 
 [10 Essential Economic Truths Liberals Need to Learn](https://www.forbes.com/sites/jeffreydorfman/2014/06/05/10-essential-economic-truths-liberals-need-to-learn/#20050e74e73e)
 
@@ -6048,7 +6044,7 @@ Bookmarks của Thịnh Phạm
 
 [Dân ngu tại ai? - Cafe Ku Búa](http://cafekubua.com/2016/11/30/dan-ngu-tai-ai/)
 
-[Do We Really Need a Central Bank? | RealClearMarkets](http://www.realclearmarkets.com/articles/2010/10/12/do_we_really_need_a_central_bank__98712.html)
+[Do We Really Need a Central Bank? . RealClearMarkets](http://www.realclearmarkets.com/articles/2010/10/12/do_we_really_need_a_central_bank__98712.html)
 
 [ĐỔI MỚI 2.0 - 10 dấu hiệu cho thấy CS sẽ cải tiến - Cafe Ku Búa](http://cafekubua.com/2017/05/04/doi-moi-2-0-10-dau-hieu-cho-thay-cs-se-cai-tien/)
 
@@ -6084,9 +6080,9 @@ Bookmarks của Thịnh Phạm
 
 [Làm sao để giải quyết vấn đề an ninh thế giới? - Cafe Ku Búa](http://cafekubua.com/2016/06/30/lam-sao-de-giai-quyet-van-de-an-ninh-the-gioi/)
 
-[Learn Liberty | Freedom Day,cũng là sinh nhật của Thomas Jefferson](http://www.learnliberty.org/freedom-day/?utm_campaign=coschedule&utm_source=facebook_page&utm_medium=Learn+Liberty&utm_content=Freedom+Day)
+[Learn Liberty . Freedom Day,cũng là sinh nhật của Thomas Jefferson](http://www.learnliberty.org/freedom-day/?utm_campaign=coschedule&utm_source=facebook_page&utm_medium=Learn+Liberty&utm_content=Freedom+Day)
 
-[Barack Obama’s Economy: The Ugly Truth | National Review](http://www.nationalreview.com/article/435093/barack-obama-economy-jobs-ugly-truth)
+[Barack Obama’s Economy: The Ugly Truth . National Review](http://www.nationalreview.com/article/435093/barack-obama-economy-jobs-ugly-truth)
 
 [Lời hứa đạo đức của thị trường tự do \[THĐP Vietsub\] - YouTube](https://www.youtube.com/watch?v=URMA4W0DsNI)
 
@@ -6134,7 +6130,7 @@ Bookmarks của Thịnh Phạm
 
 [HÂM NÓNG ĐỊA CẦU-Vũ Linh](https://vietbao.com/a269544/tt-trump-dot-dia-cau-)
 
-[California: Golden No More | Stock News & Stock Market Analysis - IBD](http://www.investors.com/politics/commentary/california-golden-no-more/)
+[California: Golden No More . Stock News & Stock Market Analysis - IBD](http://www.investors.com/politics/commentary/california-golden-no-more/)
 
 [NHỮNG KẺ NGU NGỐC HỮU DỤNG NHIỀU KHI KHIẾN NGƯỜI TA LẦM TƯỞNG CHÚNG VỚI ĐÁM DƯ LUẬN VIÊN TRONG NƯỚC](https://www.facebook.com/tintucchanhtri/photos/a.314066072358057.1073741828.287215031709828/334033190361345/?type=3&theater&ifg=1)
 
@@ -6224,13 +6220,13 @@ Bookmarks của Thịnh Phạm
 
 [Mỹ phải làm cảnh sát của thế giới - Cafe Ku Búa](http://cafekubua.com/2017/04/14/phai-lam-canh-sat-cua-gioi/)
 
-[New York Times’ Communism Whitewash -- Vivian Gornick | National Review](http://www.nationalreview.com/corner/447230/new-york-times-communist-whitewash)
+[New York Times’ Communism Whitewash -- Vivian Gornick . National Review](http://www.nationalreview.com/corner/447230/new-york-times-communist-whitewash)
 
 [NGU DÂN - 20 cách để làm dân ngu - Cafe Ku Búa](http://cafekubua.com/2017/05/02/ngu-dan-20-cach-de-lam-dan-ngu/)
 
-[Dối Trá về Đói Nghèo của Trung Quốc | Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=Iq5oeshQR4U)
+[Dối Trá về Đói Nghèo của Trung Quốc . Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=Iq5oeshQR4U)
 
-[Kế Hoạch Đô Thị Hóa của Trung Quốc Đang Đi Sai Đường | Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=j9JD7YhTyaU&index=17&list=PLqN5jIM7iS9ILs4uMeEGEzudXAzKrRpl3)
+[Kế Hoạch Đô Thị Hóa của Trung Quốc Đang Đi Sai Đường . Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=j9JD7YhTyaU&index=17&list=PLqN5jIM7iS9ILs4uMeEGEzudXAzKrRpl3)
 
 [Sự lụn bại của các tập đoàn khổng lồ nhờ thị trường tự do.](http://www.marketwatch.com/story/amazon-apple-google-and-facebook-will-all-go-away-within-50-years-says-author-2017-10-17)
 
@@ -6242,7 +6238,7 @@ Bookmarks của Thịnh Phạm
 
 [Người mẹ và đạo đức dân tộc - Cafe Ku Búa](http://cafekubua.com/2017/04/16/nguoi-va-dao-duc-dan-toc/)
 
-[The Napoleon Complex and Trump's First 100 Days | Cato @ Liberty](https://www.cato.org/blog/napoleon-complex-trumps-first-100-days)
+[The Napoleon Complex and Trump's First 100 Days . Cato @ Liberty](https://www.cato.org/blog/napoleon-complex-trumps-first-100-days)
 
 [Những Nền Tảng Của Thịnh Vượng (1/10) - YouTube](https://www.youtube.com/watch?v=zEyZ8pV4yqQ)
 
@@ -6296,7 +6292,7 @@ Bookmarks của Thịnh Phạm
 
 [So sánh Vietnam vs Phillipines - Ku Búa vs Huỳnh Phước Sang - Cafe Ku Búa](http://cafekubua.com/2017/05/07/sanh-vietnam-vs-phillipines-ku-bua-vs-huynh-phuoc-sang/)
 
-[Số phận của „Tứ trụ“ khi Nhà nước XHCN sụp đổ | Thời báo - Trang web tin tức của cộng đồng người Việt tại Châu Âu](http://thoibao.de/chinh-tri/10840/so-phan-cua-)
+[Số phận của „Tứ trụ“ khi Nhà nước XHCN sụp đổ . Thời báo - Trang web tin tức của cộng đồng người Việt tại Châu Âu](http://thoibao.de/chinh-tri/10840/so-phan-cua-)
 
 [LỒN - Sự phát triển và sụp đổ của nền văn minh La Mã - Cafe Ku Búa](http://cafekubua.com/2017/04/26/lon-su-phat-trien-va-sup-cua-nen-van-minh-la-ma/)
 
@@ -6372,9 +6368,9 @@ Bookmarks của Thịnh Phạm
 
 [How Does Bitcoin's Market Cap Stack Up Next to Gold, the S&P 500, and U.S. Dollar?](https://www.fool.com/investing/2017/08/17/how-does-bitcoins-market-cap-stack-up-next-to-gold.aspx)
 
-[Western Elites Take The Knee | Hoover Institution](https://www.hoover.org/research/western-elites-take-knee)
+[Western Elites Take The Knee . Hoover Institution](https://www.hoover.org/research/western-elites-take-knee)
 
-[Diversity Can Spell Trouble. Victor Davis Hanson | Hoover Institution](https://www.hoover.org/research/diversity-can-spell-trouble)
+[Diversity Can Spell Trouble. Victor Davis Hanson . Hoover Institution](https://www.hoover.org/research/diversity-can-spell-trouble)
 
 [The Insatiable Utopia - Reason.com](http://reason.com/archives/2017/10/29/the-insatiable-utopia/1)
 
@@ -6392,7 +6388,7 @@ Bookmarks của Thịnh Phạm
 
 [VƯỢT BIÊN - Hồi đó giá bao nhiêu? - Cafe Ku Búa](http://cafekubua.com/2017/05/03/vuot-bien-hoi-gia-bao-nhieu/)
 
-[Why Do We Have a Central Bank? | Cato Institute](https://www.cato.org/publications/commentary/why-do-we-have-central-bank)
+[Why Do We Have a Central Bank? . Cato Institute](https://www.cato.org/publications/commentary/why-do-we-have-central-bank)
 
 [Đàn ông tốt.](https://www.facebook.com/thinhpham.univ.tours/media_set?set=a.1946951141988835.1073741834.100000219056867&type=3&pnref=story)
 
@@ -6450,7 +6446,7 @@ Bookmarks của Thịnh Phạm
 
 [Bernie Sanders nói láo, miễn phí học phí đại học không giúp sinh viên](https://www.facebook.com/thinhpham.univ.tours/posts/1265346270149329)
 
-[Ted Cruz & Muslim Surveillance: He Gets It Right | National Review](http://www.nationalreview.com/article/433258/ted-cruz-muslim-surveillance-he-gets-it-right)
+[Ted Cruz & Muslim Surveillance: He Gets It Right . National Review](http://www.nationalreview.com/article/433258/ted-cruz-muslim-surveillance-he-gets-it-right)
 
 [Dân chủ trong thế giới Muhammed giáo/ Hồi giáo, liệu có thể?](https://www.facebook.com/thinhpham.univ.tours/posts/1290724480944841)
 
@@ -6524,13 +6520,13 @@ Bookmarks của Thịnh Phạm
 
 [KHỐN NẠN - TRÒ CHƠI BUÔN ĐẤT NỀN - Cafe Ku Búa](http://cafekubua.com/2017/05/21/khon-nan-tro-choi-buon-dat-nen/)
 
-[The Problem with Guns | America Uncensored - YouTube](https://www.youtube.com/watch?v=hAtLnTyimT0)
+[The Problem with Guns . America Uncensored - YouTube](https://www.youtube.com/watch?v=hAtLnTyimT0)
 
-[ANOTHER GOP FAIL: New Republican Tax Plan Increases Taxes On High Income Earners | Daily Wire](http://www.dailywire.com/news/23128/another-gop-fail-new-republican-tax-plan-increases-ben-shapiro#)
+[ANOTHER GOP FAIL: New Republican Tax Plan Increases Taxes On High Income Earners . Daily Wire](http://www.dailywire.com/news/23128/another-gop-fail-new-republican-tax-plan-increases-ben-shapiro#)
 
 [TẬP CẬN BÌNH THẮNG LỚN - ĐỂ LÀM GÌ?](https://www.facebook.com/photo.php?fbid=10204166767007408&set=a.10200348044341728.1073741827.1773354689&type=3&permPage=1)
 
-[Venezuela's Collapse Shows Why We Need A Museum Of Communism | Stock News & Stock Market Analysis - IBD](https://www.investors.com/politics/commentary/venezuelas-collapse-shows-why-we-need-a-museum-of-communism/)
+[Venezuela's Collapse Shows Why We Need A Museum Of Communism . Stock News & Stock Market Analysis - IBD](https://www.investors.com/politics/commentary/venezuelas-collapse-shows-why-we-need-a-museum-of-communism/)
 
 [Venezuela Hola! - Nguoi Viet Online](https://www.nguoi-viet.com/nhin-tu-hoa-ky/venezuela-hola/)
 
@@ -6568,7 +6564,7 @@ Bookmarks của Thịnh Phạm
 
 ['The best story in the world today' is about free enterprise, not antipoverty programs - AEI](http://www.aei.org/publication/the-best-story-in-the-world-today-is-about-free-enterprise-not-antipoverty-programs/)
 
-[Progressive Octopus Grips Country: Sermons, Lawlessness, Hypocrisy | National Review](http://www.nationalreview.com/article/451741/progressive-octopus-grips-country-sermons-lawlessness-hypocrisy)
+[Progressive Octopus Grips Country: Sermons, Lawlessness, Hypocrisy . National Review](http://www.nationalreview.com/article/451741/progressive-octopus-grips-country-sermons-lawlessness-hypocrisy)
 
 [To Nguyen - Huyền thoại "Đêm trường Trung Cổ" (Dark Ages)](https://www.facebook.com/photo.php?fbid=1468106969975200&set=a.112978012154776.13635.100003277335967&type=3)
 
@@ -6676,7 +6672,7 @@ Bookmarks của Thịnh Phạm
 
 [Việt Nam vào TPP có lợi hay hại?](https://www.facebook.com/cafekubua/posts/918449554955226?comment_id=918459944954187&reply_comment_id=918469554953226)
 
-[Một trăm năm cách mạng Nga: Ba sai lầm chết người và một lời hứa vô căn cứ của Karl Marx. | Phạm Nguyên Trường](https://phamnguyentruong.blogspot.com/2017/11/mot-tram-nam-cach-mang-nga-ba-sai-lam.html)
+[Một trăm năm cách mạng Nga: Ba sai lầm chết người và một lời hứa vô căn cứ của Karl Marx. . Phạm Nguyên Trường](https://phamnguyentruong.blogspot.com/2017/11/mot-tram-nam-cach-mang-nga-ba-sai-lam.html)
 
 [Huyền thoại-thứ không có thật mà cứ được lưu truyền-về sự giàu có của Tàu Cộng](https://www.facebook.com/thinhpham.univ.tours/posts/1194172253933398)
 
@@ -6736,9 +6732,9 @@ Bookmarks của Thịnh Phạm
 
 [Cánh tả mãi mãi là cánh tả, một lũ láo toét, khốn nạn.](https://www.facebook.com/prageru/posts/1325784477464405)
 
-[How Petrodollars Affect The U.S. Dollar | Investopedia](https://www.investopedia.com/articles/forex/072915/how-petrodollars-affect-us-dollar.asp)
+[How Petrodollars Affect The U.S. Dollar . Investopedia](https://www.investopedia.com/articles/forex/072915/how-petrodollars-affect-us-dollar.asp)
 
-[BenGarrison Cartoons (@GrrrGraphics) | Twitter](https://twitter.com/GrrrGraphics)
+[BenGarrison Cartoons (@GrrrGraphics) . Twitter](https://twitter.com/GrrrGraphics)
 
 [My Forty-Year Vietnam War](https://myfortyyearsvietnamwar.wordpress.com/)
 
@@ -6750,7 +6746,7 @@ Bookmarks của Thịnh Phạm
 
 [Seven ways in which human ingenuity helps the planet](http://humanprogress.org/blog/human-ingenuity-helps-the-planet?utm_content=buffer2c9ff&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer)
 
-[Qatari Sermon: Unveiled Women Cause Sexual Harassment | MEMRI](https://www.memri.org/tv/qatari-friday-sermon-by-sultan-alhashmi-unveiled-women-cause-sexual-harassment)
+[Qatari Sermon: Unveiled Women Cause Sexual Harassment . MEMRI](https://www.memri.org/tv/qatari-friday-sermon-by-sultan-alhashmi-unveiled-women-cause-sexual-harassment)
 
 [Meet the liberal press-Mối quan hệ của truyền thông dòng chính cánh tả và đảng Dân Chủ là điều chẳng lạ lùng gì.](https://www.washingtontimes.com/news/2017/apr/11/meet-the-liberal-press/)
 
@@ -6758,11 +6754,11 @@ Bookmarks của Thịnh Phạm
 
 [Một bài viết ngắn về Thị trường tự do và nguồn gốc các giá trị đạo đức.](https://www.facebook.com/notes/nguy%E1%BB%85n-vi%E1%BB%87t-h%E1%BA%A3i-tri%E1%BB%81u/ng%C6%B0%E1%BB%9Di-da-%C4%91en-ph%C3%A2n-bi%E1%BB%87t-ch%E1%BB%A7ng-t%E1%BB%99c-%E1%BB%9F-hoa-k%E1%BB%B3-v%C3%A0-tai-sao-t%C3%B4i-kh%C3%B4ng-%E1%BB%A7ng-h%E1%BB%99-c%C3%A1c-%C4%91%E1%BA%A1o-lu/695365674003428/)
 
-[U.S. Assistance for Market Reforms: Foreign Aid Failures in Russia and the Former Soviet Bloc | Cato Institute](https://www.cato.org/publications/policy-analysis/us-assistance-market-reforms-foreign-aid-failures-russia-former-soviet-bloc)
+[U.S. Assistance for Market Reforms: Foreign Aid Failures in Russia and the Former Soviet Bloc . Cato Institute](https://www.cato.org/publications/policy-analysis/us-assistance-market-reforms-foreign-aid-failures-russia-former-soviet-bloc)
 
 [Only Free Markets Will Liberate Russia - Foundation for Economic Education - Working for a free and prosperous world](https://fee.org/articles/only-free-markets-will-liberate-russia/)
 
-[What Went Wrong? Russia 25 Years after the Fall of the Soviet Union | Cato Institute](https://www.cato.org/events/what-went-wrong-russia-25-years-after-fall-soviet-union)
+[What Went Wrong? Russia 25 Years after the Fall of the Soviet Union . Cato Institute](https://www.cato.org/events/what-went-wrong-russia-25-years-after-fall-soviet-union)
 
 [Inside the bear-Russia.](http://www.economist.com/sites/default/files/20161022_russia_final.pdf)
 
@@ -6770,9 +6766,9 @@ Bookmarks của Thịnh Phạm
 
 [dainamax tribune: Đối Phó Với Liên Bang Nga](http://dainamaxtribune.blogspot.com/2014/03/oi-pho-voi-lien-bang-nga.html)
 
-[What Russia Must Do to Recover from its Economic Crisis | The Heritage Foundation](http://www.heritage.org/europe/report/what-russia-must-do-recover-its-economic-crisis)
+[What Russia Must Do to Recover from its Economic Crisis . The Heritage Foundation](http://www.heritage.org/europe/report/what-russia-must-do-recover-its-economic-crisis)
 
-[Russia’s Avoidable Economic Decline | The Heritage Foundation](http://www.heritage.org/europe/report/russias-avoidable-economic-decline)
+[Russia’s Avoidable Economic Decline . The Heritage Foundation](http://www.heritage.org/europe/report/russias-avoidable-economic-decline)
 
 [How the Minimum Wage Broke Puerto Rico's Economy - Foundation for Economic Education - Working for a free and prosperous world](https://fee.org/articles/how-the-minimum-wage-helped-wreck-puerto-ricos-economy/)
 
@@ -6784,7 +6780,7 @@ Bookmarks của Thịnh Phạm
 
 [Can Bitcoin Help Alleviate Poverty? - Learn Liberty - YouTube](https://www.youtube.com/watch?v=yKFaUuXK7gc&index=2&list=PL-erRSWG3IoDAuJgugVb49eVYtfrsjuh_)
 
-[What Is Free Banking, and Why Should I Care? | Learn Liberty - YouTube](https://www.youtube.com/watch?v=lVK-kgSQMPs)
+[What Is Free Banking, and Why Should I Care? . Learn Liberty - YouTube](https://www.youtube.com/watch?v=lVK-kgSQMPs)
 
 [Economics: 3 Myths of Capitalism - Learn Liberty - YouTube](https://www.youtube.com/watch?v=M6y0EfFJpFg)
 
@@ -6802,7 +6798,7 @@ Bookmarks của Thịnh Phạm
 
 [What's So Great About Economic Freedom? - Learn Liberty - YouTube](https://www.youtube.com/watch?v=6yqA6-ukmfg&index=12&list=PL-erRSWG3IoDAuJgugVb49eVYtfrsjuh_)
 
-[Programs | STUDENTS FOR LIBERTY](https://www.studentsforliberty.org/programs/)
+[Programs . STUDENTS FOR LIBERTY](https://www.studentsforliberty.org/programs/)
 
 [Economic Freedom by the Numbers - YouTube](https://www.youtube.com/watch?v=Q3EZiPyAVjk&index=34&list=PL-erRSWG3IoDAuJgugVb49eVYtfrsjuh_)
 
@@ -6818,7 +6814,7 @@ Bookmarks của Thịnh Phạm
 
 [The Truth About Central Banking and Business Cycles - YouTube](https://www.youtube.com/watch?v=YaxIPPMR3fI)
 
-[How Bitcoin Helps Free Speech | Learn Liberty - YouTube](https://www.youtube.com/watch?v=erO5UR1zxRo)
+[How Bitcoin Helps Free Speech . Learn Liberty - YouTube](https://www.youtube.com/watch?v=erO5UR1zxRo)
 
 [US Economic History 3 — National Banks’ Rise and Fall - YouTube](https://www.youtube.com/watch?v=fX-5ivox9ZE)
 
@@ -6834,17 +6830,17 @@ Bookmarks của Thịnh Phạm
 
 [Who Needs Economic Freedom When You Can Vote? - YouTube](https://www.youtube.com/watch?v=tgCw0kn_m8U)
 
-[Commemorating Milton Friedman’s 100th Birthday with the Index of Economic Freedom | The Heritage Foundation](http://www.heritage.org/international-economies/report/commemorating-milton-friedmans-100th-birthday-the-index-economic)
+[Commemorating Milton Friedman’s 100th Birthday with the Index of Economic Freedom . The Heritage Foundation](http://www.heritage.org/international-economies/report/commemorating-milton-friedmans-100th-birthday-the-index-economic)
 
 [The Left is Stumped for Fresh Tax Reform Ideas - Foundation for Economic Education - Working for a free and prosperous world](https://fee.org/articles/the-left-is-stumped-for-fresh-tax-reform-ideas/)
 
-[The Original, Unpublished Chapter 5 from Man, Economy and State | Mises Institute](https://mises.org/library/original-unpublished-chapter-5-man-economy-and-state)
+[The Original, Unpublished Chapter 5 from Man, Economy and State . Mises Institute](https://mises.org/library/original-unpublished-chapter-5-man-economy-and-state)
 
 [Defeating Extremist Islam - A Western Imperative](https://www.gatestoneinstitute.org/10378/defeating-extremist-islam)
 
 [Whole Foods' John Mackey: Why Intellectuals Hate Capitalism - YouTube](https://www.youtube.com/watch?v=_rYPp4ofXAs)
 
-[Does Democracy Promote Peace? | Mises Institute](https://mises.org/library/does-democracy-promote-peace)
+[Does Democracy Promote Peace? . Mises Institute](https://mises.org/library/does-democracy-promote-peace)
 
 [Free Market Economics: Uber, Airbnb, & Feastly vs Government Regulation - Learn Liberty - YouTube](https://www.youtube.com/watch?v=qvsPXKJe05Q)
 
@@ -6854,11 +6850,11 @@ Bookmarks của Thịnh Phạm
 
 [Why Windows 10 will soon be free - YouTube](https://www.youtube.com/watch?v=Uk8ttvw8-ng)
 
-[The United States vs. China—Which Economy Is Bigger, Which Is Better | The Heritage Foundation](http://www.heritage.org/report/the-united-states-vs-china-which-economy-bigger-which-better)
+[The United States vs. China—Which Economy Is Bigger, Which Is Better . The Heritage Foundation](http://www.heritage.org/report/the-united-states-vs-china-which-economy-bigger-which-better)
 
 [Derek Scissors: Is China the world’s top trader? - YouTube](https://www.youtube.com/watch?v=M9Q1P6cW8WM)
 
-[What a Good Trans-Pacific Partnership Looks Like | The Heritage Foundation](http://www.heritage.org/trade/report/what-good-trans-pacific-partnership-looks)
+[What a Good Trans-Pacific Partnership Looks Like . The Heritage Foundation](http://www.heritage.org/trade/report/what-good-trans-pacific-partnership-looks)
 
 [A China Expert’s Favorite Asian Stocks](https://www.barrons.com/articles/a-china-experts-favorite-asian-stocks-1509762716)
 
@@ -6874,7 +6870,7 @@ Bookmarks của Thịnh Phạm
 
 [The Innovation Is the Blockchain - YouTube](https://www.youtube.com/watch?v=kqD8T4aXBIk)
 
-[Bitcoin — Chaos Proxy | The Daily | L2](https://www.l2inc.com/daily-insights/no-mercy-no-malice/bitcoin-chaos-proxy)
+[Bitcoin — Chaos Proxy . The Daily . L2](https://www.l2inc.com/daily-insights/no-mercy-no-malice/bitcoin-chaos-proxy)
 
 [Research Blog: Speed Matters](https://research.googleblog.com/2009/06/speed-matters.html)
 
@@ -6886,7 +6882,7 @@ Bookmarks của Thịnh Phạm
 
 [Bill Gates Explainer: A Mind-Blowing Fact - YouTube](https://www.youtube.com/watch?v=qtm9B9Ww9RA)
 
-[Trump Adviser Gary Cohen Explains Why He Won't Buy Bitcoin | Fortune](http://fortune.com/2017/12/20/gary-cohn-bitcoin/)
+[Trump Adviser Gary Cohen Explains Why He Won't Buy Bitcoin . Fortune](http://fortune.com/2017/12/20/gary-cohn-bitcoin/)
 
 [Nhận Định Bài Viết Luật Sư Nguyễn Quốc Lân Về Nghị Viên Janet Nguyễn](https://www.minds.com/blog/view/780785604441939985)
 
@@ -6894,7 +6890,7 @@ Bookmarks của Thịnh Phạm
 
 [This is where we are in the life cycle of cryptocurrencies - MarketWatch](https://www.marketwatch.com/story/this-is-where-we-are-in-the-life-cycle-of-crypto-currencies-2017-12-22?link=sfmw_fb)
 
-[Saving Internet Freedom | The Heritage Foundation](http://www.heritage.org/government-regulation/report/saving-internet-freedom)
+[Saving Internet Freedom . The Heritage Foundation](http://www.heritage.org/government-regulation/report/saving-internet-freedom)
 
 [Baidu to develop AI-driven 'smart city' outside Beijing- Nikkei Asian Review](https://asia.nikkei.com/Business/AC/Baidu-to-develop-AI-driven-smart-city-outside-Beijing)
 
@@ -6908,7 +6904,7 @@ Bookmarks của Thịnh Phạm
 
 [Chuyện tư cách người đấu tranh](https://nguoibuongio1972.blogspot.com/2017/12/chuyen-tu-cach-nguoi-au-tranh.html)
 
-[The Income Inequality Obsession | Hoover Institution](https://www.hoover.org/research/income-inequality-obsession)
+[The Income Inequality Obsession . Hoover Institution](https://www.hoover.org/research/income-inequality-obsession)
 
 [The Income Inequality Obsession](https://www.facebook.com/HooverInstStanford/posts/10156049087324853)
 
@@ -6924,11 +6920,11 @@ Bookmarks của Thịnh Phạm
 
 [China may not be as strong as you think - YouTube](https://www.youtube.com/watch?v=lu5VFxHrLi4)
 
-[The Historical Lessons of Lower Tax Rates | The Heritage Foundation](http://www.heritage.org/taxes/report/the-historical-lessons-lower-tax-rates)
+[The Historical Lessons of Lower Tax Rates . The Heritage Foundation](http://www.heritage.org/taxes/report/the-historical-lessons-lower-tax-rates)
 
-[KHI TỔNG THỐNG KHÔNG SỢ TUẦN TRĂNG MẬT ĐẮNG |](https://daohieu.wordpress.com/2016/12/29/khi-tong-thong-khong-so-tuan-trang-mat-dang/)
+[KHI TỔNG THỐNG KHÔNG SỢ TUẦN TRĂNG MẬT ĐẮNG .](https://daohieu.wordpress.com/2016/12/29/khi-tong-thong-khong-so-tuan-trang-mat-dang/)
 
-[Kiểm Duyệt của YouTube được Nâng Lên Trình Khủng Khiếp Mới | Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=a3hc1jbra6U)
+[Kiểm Duyệt của YouTube được Nâng Lên Trình Khủng Khiếp Mới . Trung Quốc Không Kiểm Duyệt - YouTube](https://www.youtube.com/watch?v=a3hc1jbra6U)
 
 [Tăng trưởng GDP cho Việt Nam dự kiến đạt 6,7% năm 2017](https://www.facebook.com/groups/431354977235094/permalink/511967442507180/)
 
@@ -8486,7 +8482,7 @@ Bookmarks của Thịnh Phạm
 
 [Mỹ phải làm cảnh sát của thế giới](https://www.facebook.com/groups/300880276915116/permalink/462385910764551/)
 
-[New York Times’ Communism Whitewash -- Vivian Gornick | National Review](http://www.nationalreview.com/corner/447230/new-york-times-communist-whitewash-vivian-gornick)
+[New York Times’ Communism Whitewash -- Vivian Gornick . National Review](http://www.nationalreview.com/corner/447230/new-york-times-communist-whitewash-vivian-gornick)
 
 [Nền dân chủ thực sự là nơi người dân có quyền tự do lựa chọn](https://www.facebook.com/groups/300880276915116/permalink/461332180869924/)
 
