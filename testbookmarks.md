@@ -1,10 +1,7 @@
 Bookmarks của Thịnh Pham
 =========
 
-###### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Xin cảm ơn.
-
-
-### Chúng ta có 7 mục lục nhỏ.
+### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Chúng ta có 7 mục lục. Xin cảm ơn
 
 [1. minds.com](https://thinhphammapmap.github.io/testbookmarks.html#mindscom)
 
