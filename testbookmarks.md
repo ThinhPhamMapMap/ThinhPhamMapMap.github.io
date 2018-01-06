@@ -3,6 +3,22 @@ Bookmarks của Thịnh Pham
 
 ####### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Xin cảm ơn.
 
+### Chúng ta có 7 mục lục nhỏ.
+
+[1. minds.com](https://thinhphammapmap.github.io/testbookmarks.html#mindscom)
+
+[2. ThinhPham Timeline](https://thinhphammapmap.github.io/testbookmarks.html#thinhpham-timeline)
+
+[3. Political Economics](https://thinhphammapmap.github.io/testbookmarks.html#political-economics)
+
+[4. Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.](https://thinhphammapmap.github.io/testbookmarks.html#gi%E1%BA%A3i-%E1%BA%A3o-th%E1%BB%9Di-s%E1%BB%B1--gi%E1%BB%9D-gi%E1%BA%A3i-%E1%BA%A3o-b%C3%A1c-nguy%E1%BB%85n-xu%C3%A2n-ngh%C4%A9a-youtube)
+
+[5. VCL. Group VCL](https://thinhphammapmap.github.io/testbookmarks.html#vcl)
+
+[6. Viet classical Liberalism. Group VCCL](https://thinhphammapmap.github.io/testbookmarks.html#viet-classical-liberalism)
+
+[7. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/testbookmarks.html#b%C3%ACnh-lu%E1%BA%ADn-c%E1%BB%A7a-%C3%B4ng-v%C5%A9-linh)
+
 
 ### minds.com
 
