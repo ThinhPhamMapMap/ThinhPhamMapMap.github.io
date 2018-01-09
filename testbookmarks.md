@@ -3,22 +3,26 @@ Bookmarks của Thịnh Phạm
 
 ### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Chúng ta có 7 mục lục. Xin cảm ơn
 
-[1. minds.com](https://thinhphammapmap.github.io/testbookmarks.html#mindscom)
+[1. minds.com](https://thinhphammapmap.github.io/bookmarks.html#mindscom)
 
-[2. ThinhPham Timeline](https://thinhphammapmap.github.io/testbookmarks.html#thinhpham-timeline)
+[2. ThinhPham Timeline](https://thinhphammapmap.github.io/bookmarks.html#thinhpham-timeline)
 
-[3. Political Economics](https://thinhphammapmap.github.io/testbookmarks.html#political-economics)
+[3. Political Economics](https://thinhphammapmap.github.io/bookmarks.html#political-economics)
 
-[4. Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.](https://thinhphammapmap.github.io/testbookmarks.html#gi%E1%BA%A3i-%E1%BA%A3o-th%E1%BB%9Di-s%E1%BB%B1--gi%E1%BB%9D-gi%E1%BA%A3i-%E1%BA%A3o-b%C3%A1c-nguy%E1%BB%85n-xu%C3%A2n-ngh%C4%A9a-youtube)
+[4. Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.](https://thinhphammapmap.github.io/bookmarks.html#gi%E1%BA%A3i-%E1%BA%A3o-th%E1%BB%9Di-s%E1%BB%B1--gi%E1%BB%9D-gi%E1%BA%A3i-%E1%BA%A3o-b%C3%A1c-nguy%E1%BB%85n-xu%C3%A2n-ngh%C4%A9a-youtube)
 
-[5. VCL. Group VCL](https://thinhphammapmap.github.io/testbookmarks.html#vcl)
+[5. VCL. Group VCL](https://thinhphammapmap.github.io/bookmarks.html#vcl)
 
-[6. Viet classical Liberalism. Group VCCL](https://thinhphammapmap.github.io/testbookmarks.html#viet-classical-liberalism)
+[6. Viet classical Liberalism. Group VCCL](https://thinhphammapmap.github.io/bookmarks.html#viet-classical-liberalism)
 
-[7. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/testbookmarks.html#b%C3%ACnh-lu%E1%BA%ADn-c%E1%BB%A7a-%C3%B4ng-v%C5%A9-linh)
+[7. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/bookmarks.html#b%C3%ACnh-lu%E1%BA%ADn-c%E1%BB%A7a-%C3%B4ng-v%C5%A9-linh)
 
 
 ### minds.com
+
+[Blockchains, Cryptocurrencies & the New Decentralized Economy.](https://www.minds.com/blog/view/797123435971780608)
+
+[Chết đói vẫn tồn tại được!? Số phận Tàu Cộng, Bắc Hàn và Việt Cộng.](https://www.minds.com/blog/view/796596793314181120)
 
 [Hai triết lý kinh doanh căn bản nhất mà người tiêu dùng cần nhớ.](https://www.minds.com/blog/view/776425666382929924)
 
@@ -3641,6 +3645,16 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[The Rise of The Decentralized Economy.](https://steemit.com/crypto/@hilarski/the-rise-of-the-decentralized-economy)
+
+[Blockchains, Cryptocurrencies & the New Decentralized Economy: Part 3 — The New Internet.](https://blockchainatberkeley.blog/blockchains-cryptocurrencies-the-new-decentralized-economy-part-3-the-new-internet-818d598afd0b)
+
+[U.S. Must Condemn Iranian Regime, Back Protesters.](http://www.heritage.org/middle-east/commentary/us-must-condemn-iranian-regime-back-protesters)
+
+[Private Sector Cyber Incidents in 2017.](http://www.heritage.org/cybersecurity/report/private-sector-cyber-incidents-2017)
+
+[What Cryptocurrency Can Teach Us about Political Governance](https://fee.org/articles/what-cryptocurrency-can-teach-us-about-political-governance/)
 
 [Lịch sử hiện đại: Chiến tranh và cách mạng cách đối xử với tù phiến cộng](https://www.facebook.com/Lichsuhiendai/posts/551609798360221)
 
@@ -9562,7 +9576,7 @@ Bookmarks của Thịnh Phạm
 
 [Ba ngộ nhận về chủ nghĩa tư bản](https://www.facebook.com/groups/300880276915116/permalink/520769218259553/)
 
-### Bình luận của ông Vũ Linh
+### Bài viết của ông Vũ Linh
 
 [TT Trump Đi Á Châu](https://www.minds.com/realThinhPham/blog/tt-trump-i-chu-779706588981108752)
 
