@@ -15,7 +15,7 @@ Bookmarks của Thịnh Phạm
 
 [6. Viet classical Liberalism. Group VCCL](https://thinhphammapmap.github.io/bookmarks.html#viet-classical-liberalism)
 
-[7. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/bookmarks.html#b%C3%ACnh-lu%E1%BA%ADn-c%E1%BB%A7a-%C3%B4ng-v%C5%A9-linh)
+[7. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/bookmarks.html#b%C3%A0i-vi%E1%BA%BFt-c%E1%BB%A7a-%C3%B4ng-v%C5%A9-linh)
 
 
 ### minds.com
