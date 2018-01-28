@@ -20,9 +20,23 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Donald Trump và nền kinh tế-chính trị "xóa trong, ép ngoài" của Hoa Kỳ.](https://www.minds.com/blog/view/803843906167668736)
+
+[Tích nước.....để tức nước....rồi sẽ vỡ bờ!](https://www.minds.com/blog/view/802921864740245504)
+
+[Nguyễn Xuân Phúc nói láo về kinh tế "con hổ" của Việt Nam. Lũ điếm bên đại học Fulbright.](https://www.minds.com/blog/view/801089974893350912)
+
+[10 điều bạn cần biết về tự do kinh tế, dân chủ, mô hình nhà nước qua số liệu lịch sử.](https://www.minds.com/blog/view/799695940426043392)
+
+[Lảm nhảm chuyện "mô hình chính trị", "chính trị nhập môn", tiến sĩ ở bên Đức và mấy anh Tập Hợp Dân Chủ Đa Nguyên.](https://www.minds.com/blog/view/799664840587935744)
+
+[Điều khó trong tư duy người Việt khi sống ở một đất nước chẳng có tự do lẫn dân chủ.](https://www.minds.com/blog/view/799664050243538944)
+
+[Há miệng mắc quai!? Về chuyện quản lý group qua ví dụ "thuyết tiến hóa".](https://www.minds.com/blog/view/798963836892545024)
+
 [Blockchains, Cryptocurrencies & the New Decentralized Economy.](https://www.minds.com/blog/view/797123435971780608)
 
-[Chết đói vẫn tồn tại được!? Số phận Tàu Cộng, Bắc Hàn và Việt Cộng.](https://www.minds.com/blog/view/796596793314181120)
+[Chết đói vẫn tồn tại được!? Số phận Tàu Cộng, Bắc  Hàn và Việt Cộng.](https://www.minds.com/blog/view/796596793314181120)
 
 [Hai triết lý kinh doanh căn bản nhất mà người tiêu dùng cần nhớ.](https://www.minds.com/blog/view/776425666382929924)
 
@@ -3645,6 +3659,18 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[1981 Nightline interview with Steve Jobs.](https://www.youtube.com/watch?v=3H-Y-D3-j-M)
+
+[Opinion: This is where we are in the life cycle of cryptocurrencies.](https://www.marketwatch.com/story/this-is-where-we-are-in-the-life-cycle-of-crypto-currencies-2017-12-22)
+
+[The Highly-Anticipated 2017 Fake News Awards.](https://gop.com/the-highly-anticipated-2017-fake-news-awards/)
+
+[Even in Prison, This Professor Never Stopped Teaching Liberty and Love.](https://fee.org/articles/even-in-prison-this-professor-never-stopped-teaching-liberty-and-love/)
+
+[What's the difference between mineable, not mineable, and pre-mined cryptocurrencies? Which one is the best to invest in for beginners?.](https://www.quora.com/Whats-the-difference-between-mineable-not-mineable-and-pre-mined-cryptocurrencies-Which-one-is-the-best-to-invest-in-for-beginners)
+
+[4 Common Capitalism Myths Debunked.](https://fee.org/articles/4-common-capitalism-myths-debunked/)
 
 [The Rise of The Decentralized Economy.](https://steemit.com/crypto/@hilarski/the-rise-of-the-decentralized-economy)
 
