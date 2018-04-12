@@ -20,6 +20,102 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Thị trường tự do/lý tưởng tự do lựa chọn làm trật tự xã hội đảo lộn liên tục.](https://www.minds.com/blog/view/831146811193753600)
+
+[Mark Zuckerberg điều trần và trò bịp của bè lũ cánh tả qua vụ Facebook "lộ" thông tin.](https://www.minds.com/blog/view/831145563698692096)
+
+[Điều đúng đắn chính phủ/nhà nước nên làm!](https://www.minds.com/blog/view/831058368816152576)
+
+[CẤM BÁN DÂM HAY LỢI DỤNG CẤM BÁN DÂM ĐỂ MUA DÂM? TRÒ KHỐN NẠN NÀY RA SAO?](https://www.minds.com/blog/view/830982834885849088)
+
+[Chính phủ càng lớn, quyền tự do lựa chọn của công dân càng nhỏ.](https://www.minds.com/blog/view/830980894778392576)
+
+[Tự do lựa chọn trong kinh tế-chính trị sẽ giúp thuật lý (technology) tiến bộ qua đó dẫn đến môi sinh, môi trường được cải thiện tốt nhất.](https://www.minds.com/blog/view/828967697163804672)
+
+[Căn nguyên của hiện trạng cướp đất ở Việt Nam dưới chế độ Việt Cộng.](https://www.minds.com/blog/view/828963284831494144)
+
+[Cường quốc, xứ sở hay vùng đất không thể lụn bại!? Cánh tả, dân chủ, tự do kinh tế và phát triển.](https://www.minds.com/blog/view/828836979951591424)
+
+[Từ rất lâu rồi, Tàu Cộng đã phát triển CHIẾN TRANH TOÀN DIỆN (cả chiến tranh thương mại) chống lại thế giới tự do.](https://www.minds.com/blog/view/828114069277405184)
+
+[Bài của ông Đình Đại về Formosa.](https://www.minds.com/blog/view/828112343891734528)
+
+[Tàu Cộng trả đũa hay vờ đòn để xin đỡ đau khi bị đánh!?](https://www.minds.com/blog/view/828111283010936832)
+
+[Hoa Kỳ muốn NATO có lượng 30.000 quân sẵn sàng ứng chiến nếu Nga tấn công.](https://www.minds.com/blog/view/828110129458606080)
+
+[Fake news-tin giả, tin láo của bọn cánh tả.](https://www.minds.com/blog/view/828106059277934592)
+
+[Bộ mặt gian manh và ác độc của mấy tay chính trị gia cánh tả đằng sau chuyện biểu tình súng ống.](https://www.minds.com/blog/view/825392250049507328)
+
+[Donald Trump lại tiếp tục cảnh cáo Tàu Cộng bằng thuế quan.](https://www.minds.com/blog/view/825390596395487232)
+
+[Tài trợ nước ngoài- duy trì độc tài.](https://www.minds.com/blog/view/825016525879689216)
+
+[Tài nguyên và độc tài- Bàn về một trong những nước giàu nhất thế giới: Saudi Arabia.](https://www.minds.com/blog/view/825012808477569024)
+
+[Giải thích thêm về lý tưởng tự do hay được gọi ngắn gọn là "cánh hữu". Bàn về từ "cực hữu".](https://www.minds.com/blog/view/824639590276186112)
+
+[Justin Trudeau - Phải đạo chính trị hay tâm thần chính trị?](https://www.minds.com/blog/view/824636422544867328)
+
+[Chuyện súng ống và trường hợp biểu tình ở Việt Nam. Nếu có dân có súng ống, liệu cộng sản dám đàn áp mạnh tay?](https://www.minds.com/blog/view/824635554814672896)
+
+[Cai trị bằng thiểu số và tuyên truyền ngu dân. Quyền lợi và ổn định xã hội.](https://www.minds.com/blog/view/824633433735294976)
+
+[Chỉ có "xã hội chủ nghĩa" mới cứu được Tàu Cộng? Lời nói, đòn phép và thực tế mà Tập Cận Bình phải đối mặt.](https://www.minds.com/blog/view/824632666587578368)
+
+[Lật tẩy trò tuyên truyền về nữ quyền của phe cánh tả Hoa Kỳ.](https://www.minds.com/blog/view/824632146116395008)
+
+[Thực hư chuyện Tổng thống Trump đánh thuế nhôm thép (The Real Reason for Trump’s Steel and Aluminum Tariffs).](https://www.minds.com/blog/view/824629927506866176)
+
+[Hòa bình và phát triển. Nga quậy khắp nơi bao gồm cả Ukraine.](https://www.minds.com/blog/view/823216256177750016)
+
+[Phúc-Báo ngày tàn của chế độ cộng sản và điểm lật không thể cứu vãn.](https://www.minds.com/blog/view/823215455963267072)
+
+[Chuyện súng đạn và trò mị dân.](https://www.minds.com/blog/view/823214564971462656)
+
+[Leonardo DiCaprio và Al Gore. Trò bịp biến đổi khí hậu và đám tư bản thân tộc.](https://www.minds.com/blog/view/823212855574478848)
+
+[Fake news của Việt Cộng và Trò duy trì lãi suất tiền gửi USD ở 0%.](https://www.minds.com/blog/view/823211327430148096)
+
+[Vụ 600 giáo viên ở Đắk Lắk và chuyện thúc đẩy tự do lựa chọn trong giáo dục bao gồm tư nhân hóa ngành giáo dục.](https://www.minds.com/blog/view/823210031371501568)
+
+[Cuốn sách kinh điển của Hayek về Phi tiền tệ hóa một quốc gia và thúc đẩy "tự do ngân hàng".](https://www.minds.com/blog/view/823208343625515008)
+
+[TPP và CPTPP: bữa tiệc thịnh soạn và miếng bánh quy.](https://www.minds.com/blog/view/818697353509744640)
+
+[Vụ tàu chiến Mỹ đến Đà Nẵng: "Trò đu dây" của Việt Cộng thực chất là trò bịp, chẳng có "trò đu dây" nào ở đây cả!](https://www.minds.com/blog/view/818409886227005440)
+
+[Hứa Văn Lèo hay Tập Cận Bình!? Con đường tơ lụa hay Nhất Đới-Nhất Lộ chỉ là trò ảo mộng!?](https://www.minds.com/blog/view/818408959542046720)
+
+[Gorbachev và Tập Cận Bình: Hạ cánh mềm và hạ cánh cứng!?](https://www.minds.com/blog/view/818407902178979840)
+
+[Chiến tranh mậu dịch hay "trò chơi" một chiều từ phía Hoa Kỳ!?](https://www.minds.com/blog/view/817979452385099776)
+
+[Tính chất áp đặt trong giáo dục. Nền tự do giáo dục mở rộng và sáng tạo, thịnh vượng.](https://www.minds.com/blog/view/817737935824875520)
+
+[Chính sách nô lệ mới của bè lũ cánh tả hay độc tài toàn trị.](https://www.minds.com/blog/view/817398698991869952)
+
+[Tập quyền và cải cách!? Chỉ thành công nếu đó là cải cách từ trên xuống để xây dựng trật tự tự do từ dưới lên.](https://www.minds.com/blog/view/817388765331058688)
+
+[Độc tài cộng sản sụp đổ. Phần 4. Tương lai sẽ tươi sáng hơn, thế hệ chúng ta sẽ nỗ lực xây dựng lại đất nước.](https://www.minds.com/blog/view/817360802654117888)
+
+[250 năm chó má. Đất nước liệu còn tương lai!?](https://www.minds.com/blog/view/779044173788487688)
+
+[Con diều hâu Donald Trump: Khi Hoa Kỳ "đập" Tàu Cộng. Địch vận của Tàu Cộng, Việt Cộng đến chính quyền Trump lẫn cánh hữu Hoa Kỳ.](https://www.minds.com/blog/view/814136403811098624)
+
+[Sự khác biệt giữa tư bản thân tộc xứ dân chủ và xứ độc tài toàn trị.](https://www.minds.com/blog/view/813713085042196480)
+
+[Khái niệm limit (giới hạn) và trừu tượng. Khái niệm "cực hữu", "cánh hữu", "khuynh hữu" hay "trung hữu" là gì!?](https://www.minds.com/blog/view/807699392678723584)
+
+[Jordan Peterson - Hướng đi cho sinh viên thời hiện đại.](https://www.minds.com/blog/view/806490356567244800)
+
+[Fake News của Việt Cộng. Tuyên truyền về "đế quốc Mỹ" và mạo danh "chống" Tàu.](https://www.minds.com/blog/view/806428882893275136)
+
+[Muốn chống tham nhũng, quan liêu...!? Hãy đơn giản hóa bộ máy hành chính nhà nước/chính phủ.](https://www.minds.com/blog/view/806382530052419584)
+
+[Đừng để bị cuốn vô những trò "đấu khẩu" vô nghĩa với đám loser, cắc ké hay chó săn của đảng. Mất thời gian, trúng kế và thiếu hiệu quả.](https://www.minds.com/blog/view/805460965917278208)
+
 [Donald Trump và nền kinh tế-chính trị "xóa trong, ép ngoài" của Hoa Kỳ.](https://www.minds.com/blog/view/803843906167668736)
 
 [Tích nước.....để tức nước....rồi sẽ vỡ bờ!](https://www.minds.com/blog/view/802921864740245504)
@@ -3659,6 +3755,76 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Review: Thomas Sowell’s ‘A Conflict of Visions’.](https://www.aei.org/publication/review-thomas-sowells-a-conflict-of-visions/)
+
+[Mike Pompeo Could be the Most Significant Secretary of State in Decades.](https://www.hudson.org/research/14222-mike-pompeo-could-be-the-most-significant-secretary-of-state-in-decades)
+
+[Why China's 'Dominance' of Manufacturing Is Misleading.](https://www.theatlantic.com/china/archive/2013/08/why-chinas-dominance-of-manufacturing-is-misleading/278468/)
+
+[Technologies Converge and Power Diffuses: The Evolution of Small, Smart, and Cheap Weapons.](https://www.cato.org/publications/policy-analysis/technologies-converge-power-diffuses-evolution-small-smart-cheap)
+
+[Thanks to AI, the Future of ‘Fake News’ May Be Easily-Faked Video.](https://www.cato.org/publications/commentary/thanks-ai-future-fake-news-may-be-easily-faked-video)
+
+[2017 Was A Bad Year For China. Will 2018 Be Worse?](https://www.forbes.com/sites/douglasbulloch/2017/12/31/2017-was-a-bad-year-for-china-will-2018-be-worse/2/#60f586f429df)
+
+[The Architect of Trump’s Threatened China Trade War.](https://www.wsj.com/articles/the-architect-of-trumps-tough-on-china-policy-1523028038)
+
+[China’s Great Stagnation.](http://nationalinterest.org/feature/chinas-great-stagnation-18073?page=show)
+
+[America’s Civilizational Paralysis.](https://www.hoover.org/research/americas-civilizational-paralysis)
+
+[Trump, Adultery, Morality.](https://townhall.com/columnists/dennisprager/2018/03/27/trump-adultery-morality-n2464958)
+
+[Fascism and Communism Were Two Peas in a Pod.](https://fee.org/articles/fascism-and-communism-were-two-peas-in-a-pod/)
+
+[Why Botswana Is Better Off Than Zimbabwe.](https://fee.org/articles/why-botswana-is-better-off-than-zimbabwe/)
+
+[Sự thật về tự do mậu dịch.](https://www.rfa.org/vietnamese/news/programs/EconomicForum/the-free-trade-fallacy-03272018130445.html)
+
+[Bể Từ Vòng Ngoài.](https://vietbao.com/a227639/be-tu-vong-ngoai)
+
+[Why Environmentalists Need to Understand Economics.](https://fee.org/articles/why-environmentalists-need-the-free-market/)
+
+[Tâm Hành Gia.](https://vietbao.com/a96923/tam-hanh-gia)
+
+[What’s the Difference between GDP and Personal Income?](http://lmi.mt.gov/MTLaborBlog/ArticleID/67/What%E2%80%99s-the-Difference-between-GDP-and-Personal-Income)
+
+[Soviet Communism Was Dependent on Western Technology.](https://fee.org/articles/soviet-communism-was-dependent-on-western-technology/)
+
+[Interest Rates in Austrian Theory](https://www.youtube.com/watch?v=17MJzNUj-gY&list=PL-erRSWG3IoBdJR4Xsteav9UyA1FA1djE&index=9)
+
+[Peter Schiff: Why We Should END the Fed?](https://www.youtube.com/watch?v=3en75HjKvyo)
+
+[Austrian Business Cycle Theory. What causes business cycles?](https://www.youtube.com/watch?v=VYdF0N9hmxc)
+
+[Should We End the Fed?](https://www.youtube.com/watch?v=a_s6ofhyqWw)
+
+[UPDATED: Comparing Death Rates from Mass Public Shootings and Mass Public Violence in the US and Europe.](https://crimeresearch.org/2015/06/comparing-death-rates-from-mass-public-shootings-in-the-us-and-europe/)
+
+[HERE'S THAT PESKY ENVIRONMENTAL KUZNETS CURVE AGAIN.](https://www.adamsmith.org/blog/heres-that-pesky-environmental-kuznets-curve-again)
+
+[How Is Muslim Immigration to Sweden Working Out?](https://www.youtube.com/watch?v=QCE_vEdA9WU)
+
+[How a Steel Box Changed the World: A Brief History of Shipping.](https://www.youtube.com/watch?v=0MUkgDIQdcM)
+
+[Độ ngu xuẩn đến là cùng của Nguyễn Gia Kiểng. Quá thất vọng.](https://www.facebook.com/thong.luan.1/posts/2009836362359795)
+
+[Vietnam's Geographic Challenge.](https://www.youtube.com/watch?v=Vw2yRTfGYgw&index=9&list=PLD985DC24042D71ED)
+
+[The Importance of the Iranian Protests.](https://www.youtube.com/watch?v=oedDelEOpWg)
+
+[Toàn văn Thông điệp Liên bang đầu tiên của Tổng thống Donald Trump.](https://drive.google.com/file/d/1r-yp7yM1H7tQo6k6cjNurHWkbVZZCHyV/view)
+
+[Cộng sản tăng cường đàn áp người yêu nước và khảo sát.](https://www.facebook.com/groups/431354977235094/permalink/527063620997562/)
+
+[VẠCH MẶT SỐ LIỆU ĐỂU VỀ KINH TẾ TRUNG QUỐC.](https://nhacvathuphap.blogspot.com/2018/01/vach-mat-so-lieu-eu-ve-kinh-te-trung.html)
+
+[TOÀN BÀI DIỄN VĂN CỦA TT TRUMP TẠI DAVOS.](https://vietnameseoutlook.blogspot.com/2018/01/toan-bai-dien-van-cua-tt-trump-tai-davos.html)
+
+[Lưu Hạ-"cố vấn" kinh tế Tàu Cộng chỉ là con két.](https://www.facebook.com/xuan.nguyen.520562/posts/10204494440439039)
+
+[Chinese President Xi Jinping’s top economic aide fails to inspire at World Economic Forum in Davos.](http://www.scmp.com/news/china/economy/article/2131029/chinese-president-xi-jinpings-top-economic-aide-fails-inspire)
 
 [1981 Nightline interview with Steve Jobs.](https://www.youtube.com/watch?v=3H-Y-D3-j-M)
 
