@@ -20,6 +20,36 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Bàn về Syria từ A đến Z. Tại sao Donald Trump "ra lệnh" phá hủy các cơ sở võ khí hóa học của chính quyền Syria!?](https://www.minds.com/blog/view/832944921249554432)
+
+[Thử so sánh trên toàn cõi Châu Á hay Á Châu và sự xui xẻo của Việt Nam. Trí tuệ dân tộc Việt Nam và sức đè của đảng Cộng Sản Việt Nam.](https://www.minds.com/blog/view/832944142270832640)
+
+[Facebook hay Mark Zuckerberg là ví dụ cho sự thay đổi từ tự do, cởi mở hay "khuynh hữu" thành thiên tả, toàn trị và kiểm soát.](https://www.minds.com/blog/view/832943207389831168)
+
+[China's great stagnation.](https://www.minds.com/blog/view/832942086545973248)
+
+[Lãnh đạo Cộng Hòa đa số rất có lòng nhưng nhiều lúc rất ngu xuẩn, thiếu biến báo, chỉ nói toàn lý tưởng trong một thực tế phức tạp.](https://www.minds.com/blog/view/832941391013609472)
+
+[20 kênh/hệ thống truyền thông (tiếng Anh) mà người theo cánh hữu/lý tưởng tự do nên theo dõi.](https://www.minds.com/blog/view/832175254636220416)
+
+[Quy tắc vàng về đạo đức.](https://www.minds.com/blog/view/831861034377781248)
+
+[Xã hội bại hoại và suy đồi.](https://www.minds.com/blog/view/831859973269200896)
+
+[Tự do kinh tế-chính trị. Hệ thống "xin cho", dòng tộc và tính địa phương hóa. Cải cách ở Việt Nam tương lai.](https://www.minds.com/blog/view/831811372300083200)
+
+[Một bài đập thẳng mặt Tập Hợp Dân Chủ Đa Nguyên. Có lẽ chẳng phải ghét bỏ mà tiếc vì "chẳng rèn được sắt".](https://www.minds.com/blog/view/831785535425839104)
+
+[Đám "dư luận viên" hay "bò đỏ" của cộng sản, tầng lớp thấp nhất thường là khôn vặt trong khi ngu xuẩn về những chuyển động của xã hội.](https://www.minds.com/blog/view/831784021663129600)
+
+[Nước Tàu dưới sự lãnh đạo của Tàu Cộng không có tự do nên chẳng có sáng tạo, vì vậy sẽ không thể dẫn đầu thế giới, bao gồm tham vọng về thuật lý (technology) high-tech hay AI.](https://www.minds.com/blog/view/831779240206901248)
+
+[5 vấn đề về tình hình kinh tế-chính trị lẫn xã hội hiện tại mà bạn nên biết.](https://www.minds.com/blog/view/831777907832356864)
+
+[Estonia và bài học đoàn kết người dân bằng sự thịnh vượng, sung túc.](https://www.minds.com/blog/view/831777194142171136)
+
+[Tàu Cộng phát triển các thuật lý (technology) high-tech một cách có chọn lọc để đảm bảo vấn đề an ninh nội địa.](https://www.minds.com/blog/view/831776228718247936)
+
 [Thị trường tự do/lý tưởng tự do lựa chọn làm trật tự xã hội đảo lộn liên tục.](https://www.minds.com/blog/view/831146811193753600)
 
 [Mark Zuckerberg điều trần và trò bịp của bè lũ cánh tả qua vụ Facebook "lộ" thông tin.](https://www.minds.com/blog/view/831145563698692096)
@@ -3755,6 +3785,14 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Equality: Man’s Most Dangerous Myth.](https://nationalvanguard.org/2010/09/equality-mans-most-dangerous-myth/)
+
+[Evolution of human races at the gene level.](https://www.ncbi.nlm.nih.gov/pubmed/7163193)
+
+[Amid Push for Knife Control, UK Shows Gun Control Doesn’t Increase Safety.](https://www.dailysignal.com/2018/04/12/london-mayor-imposes-knife-control-because-gun-control-hasnt-worked/)
+
+[Rogoff: «China is the leading candidate for being at the center of the next big financial crisis».](https://www.fuw.ch/article/rogoff-china-is-the-leading-candidate-for-being-at-the-center-of-the-next-big-financial-crisis/)
 
 [Review: Thomas Sowell’s ‘A Conflict of Visions’.](https://www.aei.org/publication/review-thomas-sowells-a-conflict-of-visions/)
 
