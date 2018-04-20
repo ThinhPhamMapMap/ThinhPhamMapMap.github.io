@@ -20,6 +20,20 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Ổ cánh tả Ted: Khi đám cánh tả nhân danh môi sinh để đổ lỗi cho lòng tham hay chủ nghĩa tư bản. Thực chất, muốn xã hội có môi trường tốt hơn, hãy tự do kinh tế hơn nữa.](https://www.minds.com/blog/view/834062079090753536)
+
+[ZTE và Huawei cùng hiểm họa an ninh cho các nước phát triển.](https://www.minds.com/blog/view/834059105337606144)
+
+[Tại sao tự do giáo dục/tự do lựa chọn trong giáo dục (gồm tư nhân hóa hệ thống giáo dục) quan trọng (như thúc đẩy tự do ngôn luận hay tự do học thuật)!?](https://www.minds.com/blog/view/834058311485882368)
+
+[Bong bóng bất động sản và núi nợ của Tàu Cộng. Chênh lệch thu nhập vùng miền lớn của Tàu Cộng. Tại sao nước Mỹ hay Hoa Kỳ dẫn đầu? Deregulation của Donald Trump.](https://www.minds.com/blog/view/834057164339544064)
+
+[Đội quân "50 xu" và bộ máy tuyên truyền của Tàu Cộng (Việt Cộng cũng bắt chước). Larry Kudlow chỉ đích danh trò cướp giật, điếm đằng của Tàu Cộng trong thương mại, tài chính hay kinh tế nói chung.](https://www.minds.com/blog/view/834055582293954560)
+
+[Làm sao để giúp đất nước Việt Nam thoát nghèo với góc nhìn "nhỏ bé hơn".](https://www.minds.com/blog/view/834054370534621184)
+
+[Phép lạ kinh tế Tàu Cộng kết thúc. Khủng hoảng đang đến với tình trạng thất nghiệp nghiêm trọng tại xứ Tàu. Số liệu tăng trưởng GDP của Tàu không đáng tin.](https://www.minds.com/blog/view/834053324374540288)
+
 [Bàn về Syria từ A đến Z. Tại sao Donald Trump "ra lệnh" phá hủy các cơ sở võ khí hóa học của chính quyền Syria!?](https://www.minds.com/blog/view/832944921249554432)
 
 [Thử so sánh trên toàn cõi Châu Á hay Á Châu và sự xui xẻo của Việt Nam. Trí tuệ dân tộc Việt Nam và sức đè của đảng Cộng Sản Việt Nam.](https://www.minds.com/blog/view/832944142270832640)
@@ -402,11 +416,11 @@ Bookmarks của Thịnh Phạm
 
 [Quyền lực và cánh hữu](https://www.minds.com/realThinhPham/blog/quyn-lc-v-cnh-hu-778516781198221324)
 
-[Suy đồi văn hóa và chuỗi di hại ở Âu Châu (châu Âu).](https://www.minds.com/realThinhPham/blog/suy-i-vn-ha-v-chui-di-hi-u-chu-chu-u-778518362526326791)
+[Suy đồi văn hóa và chuỗi di hại ở Âu Châu (châu Âu). Xóa bịp chuyện nước Đức và Merkel.](https://www.minds.com/blog/view/778518362526326791)
 
 [Sự đúng sai hời hợt!](https://www.minds.com/realThinhPham/blog/s-ng-sai-hi-ht-778518935761854480)
 
-[Sự thất bại của kinh tế kế hoạch tập trung](https://www.minds.com/realThinhPham/blog/s-tht-bi-ca-kinh-t-k-hoch-tp-trung-778519314683666443)
+[Sự thất bại của kinh tế kế hoạch tập trung](https://www.minds.com/blog/view/778519314683666443)
 
 [Sự tương tự của cho vay nặng lãi và chương trình y tế nhà nước ACA-Obamacare](https://www.minds.com/realThinhPham/blog/s-tng-t-ca-cho-vay-nng-li-v-chng-trnh-y-t-nh-nc-aca-obamacar-778519809091444745)
 
@@ -440,13 +454,13 @@ Bookmarks của Thịnh Phạm
 
 [Tự do = đạo đức = thịnh vượng](https://www.minds.com/realThinhPham/blog/t-do-o-c-thnh-vng-778952937949896708)
 
-[Ngẫm về ngôi làng bị cô lập](https://www.minds.com/realThinhPham/blog/ngm-v-ngi-lng-b-c-lp-778954282870251534)
+[Ngẫm về ngôi làng bị cô lập](https://www.minds.com/blog/view/778954282870251534)
 
 [Tự do không giới hạn nghĩa là không có tự do](https://www.minds.com/realThinhPham/blog/t-do-khng-gii-hn-ngha-l-khng-c-t-do-778957124708343822)
 
 [Tự do kinh tế (chủ nghĩa tư bản) luôn luôn là môi trường tốt nhất cho người nghèo](https://www.minds.com/realThinhPham/blog/t-do-kinh-t-ch-ngha-t-bn-lun-lun-l-mi-trng-tt-nht-cho-ngi-ng-778958382668193798)
 
-[Vai trò của "trí thức"! Khái niệm bịp bợm khi so sánh về "chủ nghĩa cá nhân" và "chủ nghĩa tập thể".](https://www.minds.com/realThinhPham/blog/vai-tr-ca-tr-thc-khi-nim-bp-bm-khi-so-snh-v-ch-ngha-c-nhn-v-778959633900380174)
+[Vai trò của "trí thức"! Khái niệm bịp bợm khi so sánh về "chủ nghĩa cá nhân" và "chủ nghĩa tập thể".](https://www.minds.com/blog/view/778959633900380174)
 
 [Tư nhân hóa, tư hữu hóa và quyền sở hữu đất đai không có là chướng ngại khiến Việt Nam không có tương lai.](https://www.minds.com/realThinhPham/blog/t-nhn-ha-t-hu-ha-v-quyn-s-hu-t-ai-khng-c-l-chng-ngi-khin-vit-778961462868582403)
 
@@ -508,7 +522,7 @@ Bookmarks của Thịnh Phạm
 
 [Cộng sản muốn vơ vét rồi bỏ chạy hoặc chia phần trước trật tự mới? Tham thì thâm. Không dễ đâu sản ơi!!! Tự cứu mình thời hậu cộng sản.](https://www.minds.com/realThinhPham/blog/cng-sn-mun-v-vt-ri-b-chy-hoc-chia-phn-trc-trt-t-mi-tham-th-t-779222099116957702)
 
-[20 câu hỏi và trả lời về tự do kinh tế (hay bị gọi xuyên tạc là "chủ nghĩa tư bản"), thị trường và nền kinh tế](https://www.minds.com/realThinhPham/blog/20-cu-hi-v-tr-li-v-t-do-kinh-t-hay-b-gi-xuyn-tc-l-ch-ngha-t-779230976566894595)
+[20 câu hỏi và trả lời về tự do kinh tế (hay bị gọi xuyên tạc là "chủ nghĩa tư bản"), thị trường và nền kinh tế](https://www.minds.com/blog/view/779230976566894595)
 
 [Năng lượng mặt trời. Trò chơi đắt đỏ! Chủ nghĩa tư bản thân tộc ngành năng lượng "sạch".](https://www.minds.com/realThinhPham/blog/nng-lng-mt-tri-tr-chi-t-ch-ngha-t-bn-thn-tc-ngnh-nng-lng-sch-779221325997678596)
 
@@ -792,7 +806,7 @@ Bookmarks của Thịnh Phạm
 
 [Hành động từ thiện hiệu quả nhất là....tư lợi trong môi trường tự do kinh tế](https://www.minds.com/realThinhPham/blog/hnh-ng-t-thin-hiu-qu-nht-l-t-li-trong-mi-trng-t-do-kinh-t-783931661493477395)
 
-[Hãy luôn luôn biết chịu trách nhiệm về thông tin mình tiếp nhận sau khi trải qua sự xem xét kĩ lưỡng. Không ai giúp được bạn ngoài chính bạn.](https://www.minds.com/realThinhPham/blog/hy-lun-lun-bit-chu-trch-nhim-v-thng-tin-mnh-tip-nhn-sau-khi-783933025745379348)
+[Hãy luôn luôn biết chịu trách nhiệm về thông tin mình tiếp nhận sau khi trải qua sự xem xét kĩ lưỡng. Không ai giúp được bạn ngoài chính bạn.](https://www.minds.com/blog/view/783933025745379348)
 
 [Hayek và kinh tế Keynes. Đoan trích nhỏ trong cuốn " đường về nô lệ", phê phán các hành động can thiệp kinh tế.](https://www.minds.com/realThinhPham/blog/hayek-v-kinh-t-keynes-oan-trch-nh-trong-cun-ng-v-n-l-ph-phn-783933517292642319)
 
@@ -2226,7 +2240,7 @@ Bookmarks của Thịnh Phạm
 
 [Quyền lực và cánh hữu](https://www.facebook.com/groups/695986580606802/permalink/735569039981889/)
 
-[Suy đồi văn hóa và chuỗi di hại ở Âu Châu (châu Âu).](https://www.facebook.com/groups/695986580606802/permalink/735569576648502/)
+[Suy đồi văn hóa và chuỗi di hại ở Âu Châu (châu Âu). Xóa bịp chuyện nước Đức và Merkel.](https://www.facebook.com/groups/695986580606802/permalink/735569576648502/)
 
 [Sự dối trá có hệ thống của cánh tả về tự do thương mại. Economic Policy Institute dối trá thế nào?](https://www.facebook.com/groups/695986580606802/permalink/735570506648409/)
 
@@ -8044,7 +8058,7 @@ Bookmarks của Thịnh Phạm
 
 [\[Quyền lực và cánh hữu\]](https://www.facebook.com/groups/300880276915116/permalink/412722982397511/)
 
-[\[Suy đồi văn hóa và chuỗi di hại ở Âu Châu\], giải ảo chuyện nước Đức và Merkel](https://www.facebook.com/groups/300880276915116/permalink/416425468693929/)
+[Suy đồi văn hóa và chuỗi di hại ở Âu Châu (châu Âu). Xóa bịp chuyện nước Đức và Merkel](https://www.facebook.com/groups/300880276915116/permalink/416425468693929/)
 
 [\[Sự dối trá có hệ thống của cánh tả về tự do thương mại\]](https://www.facebook.com/groups/300880276915116/permalink/372094119793731/)
 
