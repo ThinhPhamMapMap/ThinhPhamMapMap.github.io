@@ -20,6 +20,48 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Dự đoán và thử phân tích về Bắc Hàn-Nam Hàn-Hoa Kỳ-Tàu Cộng ngày 28/04/2018.](https://www.minds.com/blog/view/838088133403463680)
+
+[Bill Gates. Lời nói và lời nói thật.](https://www.minds.com/blog/view/838087229883273216)
+
+[Cánh tả muốn vẽ lại bản đồ năng lượng không theo quy luật thị trường. Năng lượng sạch, năng lượng hạch tâm và biến đổi khí hậu.](https://www.minds.com/blog/view/837536869317537792)
+
+[Tạo ra giá trị, kiếm lời và thu thuế!](https://www.minds.com/blog/view/837535986827587584)
+
+[Xóa dốt cho Bernie Sanders: Nhà nước/chính phủ không tạo ra việc làm, doanh nghiệp cũng không mà chính tư lợi từ tư doanh mới tạo ra việc làm. Đó là bàn tay vô hình.](https://www.minds.com/blog/view/837358329186557952)
+
+[Nhà nước/chính phủ xin donation từ người dân, tại sao không? Khi technology thay đổi thì khả năng né thuế, trốn thuế càng tân tiến!](https://www.minds.com/blog/view/837357624206798848)
+
+[Thử tính lại xem GDP danh nghĩa thực sự của Tàu Cộng khoảng bao nhiêu!?](https://www.minds.com/blog/view/837352022173884416)
+
+[Tài sản tư nhân và bong bóng tài sản/bất động sản ở xứ Tàu Cộng.](https://www.minds.com/blog/view/837350402559029248)
+
+[Tại sao cánh tả lại "ôm" Hồi giáo/Muhammed giáo? Những người cánh hữu là bảo thủ xã hội?](https://www.minds.com/blog/view/835921852518830080)
+
+[Nền kinh tế Hoa Kỳ mạnh mẽ cỡ nào?](https://www.minds.com/blog/view/835921132942147584)
+
+[Sinh viên cánh tả ở Hoa Kỳ chống lại tự do ngôn luận. Tự do giáo dục sẽ mở rộng cửa cho tự do ngôn luận và tự do học thuật.](https://www.minds.com/blog/view/835919273944616960)
+
+[Điểm sách: "Liberalism and Cronyism: Two Rival Political and Economic Systems".](https://www.minds.com/blog/view/835549604018954240)
+
+[Thị trường biết cách trừng phạt những doanh nghiệp làm ăn tào lao tốt hơn nhà nước/chính phủ.](https://www.minds.com/blog/view/835537460825440256)
+
+[Mô hình kinh tế Cộng Sản chỉ là mô hình kinh tế lừa đảo Ponzi cực kì khổng lồ.](https://www.minds.com/blog/view/835536589865394176)
+
+[Tư bản thân tộc ở khắp mọi nơi, đã và đang đe dọa sự thịnh vượng, đe dọa gia tăng năng suất và tăng sự bất công.](https://www.minds.com/blog/view/835535601919815680)
+
+[Hãy ủng hộ thị trường thay vì ủng hộ "kinh doanh" hay ngành nghề nào đó.](https://www.minds.com/blog/view/835534574126874624)
+
+[Tất tần tật về Libya từ những phân tích của ông Vũ Linh.](https://www.minds.com/blog/view/835533688319229952)
+
+[GDP xứ độc tài hay cánh tả hiện nguyên hình khi "bơm bóng" rồi "nổ" nền kinh tế ảo. GDP bình quân của chế độ Soviet.](https://www.minds.com/blog/view/835532965812617216)
+
+[Nguyễn Xuân Phúc đầu quẹo nói nhảm về thuế tài sản. Phát xít = Cộng sản = Hồi giáo/Muhammed giáo.](https://www.minds.com/blog/view/835531567255220224)
+
+[GDP là gì? Và cách tính như thế nào? Bình luận đôi chút về video của ông Nguyễn Xuân Nghĩa.](https://www.minds.com/blog/view/835527368165801984)
+
+[Hệ thống giáo dục Hoa Kỳ hay Tây Phương ngày càng chèn ép không gian tự do ngôn luận, tư tưởng hay học thuật. Hãy thúc đẩy tự do giáo dục, quyền lựa chọn trong giáo dục để giải quyết điều đó.](https://www.minds.com/blog/view/835525199479664640)
+
 [Ổ cánh tả Ted: Khi đám cánh tả nhân danh môi sinh để đổ lỗi cho lòng tham hay chủ nghĩa tư bản. Thực chất, muốn xã hội có môi trường tốt hơn, hãy tự do kinh tế hơn nữa.](https://www.minds.com/blog/view/834062079090753536)
 
 [ZTE và Huawei cùng hiểm họa an ninh cho các nước phát triển.](https://www.minds.com/blog/view/834059105337606144)
@@ -474,7 +516,7 @@ Bookmarks của Thịnh Phạm
 
 [Vì sao các nước Hồi Giáo (Muhammed giáo) lại nghèo trong khi Israel lại giàu?](https://www.minds.com/realThinhPham/blog/v-sao-cc-nc-hi-gio-muhammed-gio-li-ngho-trong-khi-israel-li-778965956855603219)
 
-[Thế quyền và những bàn luận mở rộng](https://www.minds.com/realThinhPham/blog/th-quyn-v-nhng-bn-lun-m-rng-778966912263528468)
+[Thế quyền và những bàn luận mở rộng](https://www.minds.com/blog/view/778966912263528468)
 
 [Vì tiền ư?](https://www.minds.com/realThinhPham/blog/v-tin-778967365902671890)
 
@@ -3799,6 +3841,14 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Which Has The Bigger Economy: Texas Or Russia?](https://www.forbes.com/sites/greatspeculations/2018/04/17/which-has-the-bigger-economy-texas-or-russia/#121c66d570b9)
+
+[Cách Trung Quốc dùng các trường học để kéo Hà Nội về cùng phe.](https://nhacvathuphap.blogspot.com/2018/01/cach-trung-quoc-dung-cac-truong-hoc-e.html)
+
+[Ngợi ca Tư Bản Chủ Nghĩa.](https://www.rfa.org/vietnamese/news/programs/EconomicForum/capitalism-eulogy-vh-07112012151739.html)
+
+[Bernie Sanders Doesn't Understand How Jobs Are Created.](https://fee.org/articles/bernie-sanders-doesnt-understand-how-jobs-are-created/)
 
 [Equality: Man’s Most Dangerous Myth.](https://nationalvanguard.org/2010/09/equality-mans-most-dangerous-myth/)
 
