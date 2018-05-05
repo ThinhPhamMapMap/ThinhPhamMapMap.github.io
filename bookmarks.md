@@ -20,6 +20,18 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Xóa bịp về Wakanda. Hollywood gian trá và tại sao nhiều xứ Châu Phi (Phi Châu) lại nghèo khổ, bất ổn?](https://www.minds.com/blog/view/839337773823938560)
+
+[Cánh tả là chủ nghĩa tước đoạt. Tại sao có thiểu số vô cùng giàu có tại Tàu Cộng (hoặc Việt Cộng)? Người dân đã bị bóc lột như thế nào?](https://www.minds.com/blog/view/839214274842996736)
+
+[Trump's Team đi Tàu Cộng và sự thật của đòn dọa "hạ giá" đồng nội tệ-đồng Yuan.](https://www.minds.com/blog/view/838783848221278208)
+
+[Hai thái cực của kiếm tiền. Thị trường tự do và nhà nước/chính phủ toàn trị.](https://www.minds.com/blog/view/838782563665346560)
+
+[Tư tưởng Robin Hood: Lấy của người giàu, chia cho người nghèo? Chủ nghĩa Cộng Sản thành công với mô hình trên? Tại sao nó là tư bản thân tộc hay chủ nghĩa thân tộc, cấu kết?](https://www.minds.com/blog/view/838253829668749312)
+
+[New York Times ôm chủ nghĩa cộng sản.](https://www.minds.com/blog/view/838239051495784448)
+
 [Dự đoán và thử phân tích về Bắc Hàn-Nam Hàn-Hoa Kỳ-Tàu Cộng ngày 28/04/2018.](https://www.minds.com/blog/view/838088133403463680)
 
 [Bill Gates. Lời nói và lời nói thật.](https://www.minds.com/blog/view/838087229883273216)
@@ -7257,6 +7269,16 @@ Bookmarks của Thịnh Phạm
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
+
+[Mỹ-Hoa Đấu Khẩu. Thời sự ngày mai-Kim Nhung Show phát hình tối Thứ Ba 27.](https://www.minds.com/blog/view/839129065753976832)
+
+[Thuế Vụ tại Hoa Kỳ và Ác Mộng tại Bắc Kinh. Thời Sự Ngày Mai, tối Thứ Ba mùng ba trên SBTN.](https://www.minds.com/blog/view/839128288701374464)
+
+[Bãi Mìn Syria. Kim Nhung Show, thu ngày 14 phát ngày 17 Tháng Tư.](https://www.minds.com/blog/view/839127860676845568)
+
+[Trung Quốc và Rắn Lột Da. Thời Sự Ngày Mai, SBTN phát hình tối Thứ Ba 180410.](https://www.minds.com/blog/view/839127402968293376)
+
+[Viễn Ảnh Triều Tiên. Thời Sự Ngày Mai, thu hình ngày 27/4.](https://www.minds.com/blog/view/839126303482765312)
 
 [170819\. Steve Bannon giải nhiệm. Xứ Iran. Vấn đề Bắc Hàn. Món nợ chìm ở Tàu Cộng.](https://www.youtube.com/watch?v=adjKPMG6SUI)
 
