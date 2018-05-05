@@ -20,6 +20,16 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Luận: Xã hội tự do có ổn định không?](https://www.minds.com/blog/view/839463122205396992)
+
+[Làm sao để hạn chế và chấm dứt chuyện ăn thịt chó/mèo và những việc làm của những hội cánh tả như PETA sẽ gây nên hậu quả gì!?](https://www.minds.com/blog/view/839461617676947456)
+
+[Tội lớn nhất của chế độ cộng sản Việt Nam hay Việt Cộng là gì?](https://www.minds.com/blog/view/839460769538347008)
+
+[Nhân quyền đồng nhất với quyền tư hữu.](https://www.minds.com/blog/view/839459881598046208)
+
+[Vụ "Hội Thánh Đức Chúa Trời" do chế độ Cộng Sản Việt Nam thổi lên nhằm mục đích gì?](https://www.minds.com/blog/view/839458983945687040)
+
 [Xóa bịp về Wakanda. Hollywood gian trá và tại sao nhiều xứ Châu Phi (Phi Châu) lại nghèo khổ, bất ổn?](https://www.minds.com/blog/view/839337773823938560)
 
 [Cánh tả là chủ nghĩa tước đoạt. Tại sao có thiểu số vô cùng giàu có tại Tàu Cộng (hoặc Việt Cộng)? Người dân đã bị bóc lột như thế nào?](https://www.minds.com/blog/view/839214274842996736)
@@ -7269,6 +7279,8 @@ Bookmarks của Thịnh Phạm
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
+
+["Rồng Ngâm Váng Khúc Tân Thanh"](https://www.minds.com/blog/view/839464157223161856)
 
 [Mỹ-Hoa Đấu Khẩu. Thời sự ngày mai-Kim Nhung Show phát hình tối Thứ Ba 27.](https://www.minds.com/blog/view/839129065753976832)
 
