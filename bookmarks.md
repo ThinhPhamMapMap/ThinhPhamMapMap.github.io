@@ -20,6 +20,48 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Năm vấn đề quan trọng của đất nước trong tương lai. Phật Giáo-Công Giáo: Chế độ cộng sản Việt Nam đã lợi dụng và khai thác như thế nào? Tại sao chúng ta không được mắc bẫy?](https://www.minds.com/blog/view/840275113993158656)
+
+[Về Barack Hussein Obama và mẹ của ông ta. Đám cánh tả rất hay tấn công đời tư của đối thủ nhưng bản chất đời tư chúng thì thúi quắc!](https://www.minds.com/blog/view/840121812446973952)
+
+[Cánh tả/chế độ cộng sản xuyên tạc quan điểm của ông Milton Friedman về chuyện "tiền trực thăng". Ông ấy không cổ võ điều đó mà lên án nó!](https://www.minds.com/blog/view/840120246268694528)
+
+[Tâm lý phục Mỹ: Hãy phục người dân Mỹ, đừng phục chính quyền Mỹ!](https://www.minds.com/blog/view/840119214448939008)
+
+[Tự do tôn giáo và tự do tư tưởng. Nhà nước/chỉnh phủ thế quyền và đạo đức xã hội.](https://www.minds.com/blog/view/840118282447474688)
+
+[Phát xít được xếp vào dạng "cực hữu"? Và tuyên truyền láo toét của bè lũ cánh tả!](https://www.minds.com/blog/view/840114607903576064)
+
+[Ngẫm về lương tối thiểu. Cánh tả muốn mức lương tối thiểu hay kế hoạch tập trung về lương? Tại sao kế hoạch tập trung lại thất bại?](https://www.minds.com/blog/view/840106865251946496)
+
+[Đất nước lạc hậu, nghèo đói, xuống cấp đạo đức là lỗi do dân tộc Việt Nam hay của chế độ Cộng Sản Việt Nam (Việt Cộng)!?](https://www.minds.com/blog/view/840102241197608960)
+
+[Một nền kinh tế-chính trị thiếu hay chèn ép sự tự do luôn luôn phục vụ cho quyền lợi của thiểu số. Chuyện xã hội chủ nghĩa ở xứ Venezuela.](https://www.minds.com/blog/view/840100347626491904)
+
+[Dù kinh tế-chính trị khó nuối nhưng hãy hiểu đơn giản rằng: Khi có vấn đề thì có nghĩa xã hội cần tự do hơn chứ không phải vì thiếu luật hay thiếu bàn tay nhà nước/chính phủ.](https://www.minds.com/blog/view/840099095125676032)
+
+[Chính sách trợ cấp từ chính quyền đưa con người vào chỗ nô lệ. Cánh tả Hoa Kỳ đã cai trị, lợi dụng và "thuần hóa" người da đen như thế nào?](https://www.minds.com/blog/view/840098313877835776)
+
+[Cách đây hơn 100 năm, Argentina là một trong số ít các cường quốc, giờ họ lụn bại vì cánh tả. Làm sao cứu xứ đó? Hãy áp dụng thị trường tự do!](https://www.minds.com/blog/view/840097419346038784)
+
+[Tự do kinh tế rất khó đạt được!? Vì sao? Và xã hội Hồi Giáo/Muhammed giáo cần cải cách thế nào?](https://www.minds.com/blog/view/840096478555262976)
+
+[Tiền bạc có thể che lấp lương tâm của ai đó trong tức thời nhưng không thể mãi mãi.](https://www.minds.com/blog/view/840095878786568192)
+
+[Một đặc tính cố hữu của báo chí dòng chính Tây phương là ngu và bịp bợm.](https://www.minds.com/blog/view/840095513970200576)
+
+[Khối Âu Mỹ Nhật bị các vấn đề kinh tế không phải vì chủ nghĩa tư bản.](https://www.minds.com/blog/view/840095086622904320)
+
+[Tự do ngôn luận và hành vi tự sát của nhà thỏ.](https://www.minds.com/blog/view/840094598821154816)
+
+[Bọn báo chí cánh tả quả là lưỡi không xương và chuyện nói thật về nền kinh tế-chính trị Tàu Cộng.](https://www.minds.com/blog/view/840094029343723520)
+
+[Jean-Claude Juncker lú lẫn đi dự lễ tưởng niệm Karl Marx và đám lãnh đạo cánh tả của EU khiến vùng này ngày càng lụn bại.](https://www.minds.com/blog/view/840089717137838080)
+
+[Chủ Nghĩa Xã Hội thực sự chưa bao giờ được thực hiện? Sai!](https://www.minds.com/blog/view/840088465366831104)
+
+[Facebook và độc quyền? Khía cạnh của luật lệ "hạn chế" Facebook và lý do tại sao Mark Zuckerberg lại muốn điều đó.](https://www.minds.com/blog/view/840083232121147392)
+
 [Luận: Xã hội tự do có ổn định không?](https://www.minds.com/blog/view/839463122205396992)
 
 [Làm sao để hạn chế và chấm dứt chuyện ăn thịt chó/mèo và những việc làm của những hội cánh tả như PETA sẽ gây nên hậu quả gì!?](https://www.minds.com/blog/view/839461617676947456)
@@ -32,7 +74,7 @@ Bookmarks của Thịnh Phạm
 
 [Xóa bịp về Wakanda. Hollywood gian trá và tại sao nhiều xứ Châu Phi (Phi Châu) lại nghèo khổ, bất ổn?](https://www.minds.com/blog/view/839337773823938560)
 
-[Cánh tả là chủ nghĩa tước đoạt. Tại sao có thiểu số vô cùng giàu có tại Tàu Cộng (hoặc Việt Cộng)? Người dân đã bị bóc lột như thế nào?](https://www.minds.com/blog/view/839214274842996736)
+[Cánh tả là chủ nghĩa tước đoạt. Học thuyết giá trị thặng dư của Karl Marx. Tại sao có thiểu số vô cùng giàu có tại Tàu Cộng (hoặc Việt Cộng)? Người dân đã bị bóc lột như thế nào?](https://www.minds.com/blog/view/839214274842996736)
 
 [Trump's Team đi Tàu Cộng và sự thật của đòn dọa "hạ giá" đồng nội tệ-đồng Yuan.](https://www.minds.com/blog/view/838783848221278208)
 
@@ -748,7 +790,7 @@ Bookmarks của Thịnh Phạm
 
 [Xóa bịp về khái niệm: năm khái niệm trò hề, láo toét và mị dân](https://www.minds.com/realThinhPham/blog/xa-bp-v-khi-nim-nm-khi-nim-tr-h-lo-tot-v-m-dn-782866445406052360)
 
-[Năm vấn quan trọng của đất nước trong tương lai. Chia rẽ Bắc Nam: một vấn đề lớn của đất nước Việt Nam trong hiện tại và tương lai](https://www.minds.com/realThinhPham/blog/nm-vn-quan-trng-ca-t-nc-trong-tng-lai-chia-r-bc-nam-mt-vn-ln-782867241887604743)
+[Năm vấn đề quan trọng của đất nước trong tương lai. Chia rẽ Bắc Nam: một vấn đề lớn của đất nước Việt Nam trong hiện tại và tương lai](https://www.minds.com/blog/view/782867241887604743)
 
 [Chiến tranh về mặt ngôn từ bắt đầu khi chúng ta biết sự thật và nói sự thật. Láo toét về "chủ nghĩa xã hội" hay "chủ nghĩa tư bản". Chủ nghĩa xã hội thực sự!?](https://www.minds.com/realThinhPham/blog/chin-tranh-v-mt-ngn-t-bt-u-khi-chng-ta-bit-s-tht-v-ni-s-tht-782867981863493646)
 
@@ -1976,7 +2018,7 @@ Bookmarks của Thịnh Phạm
 
 [Chuyện biến đổi khí hậu, nóng lên toàn cầu. Những chia sẻ của ông Nguyễn Xuân Nghĩa.](https://www.minds.com/blog/view/795309579100266496)
 
-[Thị trường tự do khuyến khích sự hợp tác hơn là sự đối đầu, kì thị và đem lại sự tận tụy phục vụ hơn là sự bóc lột tàn nhẫn.](https://www.minds.com/blog/view/795315046824321024)
+[Thị trường tự do khuyến khích sự hợp tác hơn là sự đối đầu, đảm bảo sự khoan dung hơn sự kì thị và đem lại sự tận tụy phục vụ hơn là sự bóc lột tàn nhẫn.](https://www.minds.com/blog/view/795315046824321024)
 
 [Hãy tuyên truyền về cơm áo gạo tiền thay vì nhân quyền hay dân chủ.](https://www.minds.com/blog/view/795315932224618496)
 
@@ -3863,6 +3905,10 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Karl Marx: The Deadliest Ideas In The World.](https://freethepeople.org/karl-marx-the-deadliest-ideas-in-the-world/)
+
+[American Taxpayers Are Subsidizing Cronyism in Eastern Europe.](https://fee.org/articles/american-taxpayers-are-subsidizing-cronyism-in-eastern-europe/)
 
 [Which Has The Bigger Economy: Texas Or Russia?](https://www.forbes.com/sites/greatspeculations/2018/04/17/which-has-the-bigger-economy-texas-or-russia/#121c66d570b9)
 
