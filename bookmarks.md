@@ -20,6 +20,20 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Việt Cộng/Tàu Cộng hay tuyên truyền về tương lai u ám của Việt Nam/xứ Tàu như Libya hay Syria nếu người dân muốn dân chủ? Về xứ Venezuela!](https://www.minds.com/blog/view/840589721640534016)
+
+[Bàn về tính toán của GDP của Tàu Cộng. Tăng trưởng GDP thực và nền kinh tế Đức. GDP có thể được thổi phồng nhờ bơm tín dụng (bơm tiền) như thế nào?](https://www.minds.com/blog/view/840588608942014464)
+
+[Xóa bịp về sự bóc lột tàn nhẫn trong thế kỉ 19. Đời sống luôn cải thiện theo thời gian và càng cải thiện nhanh hơn nhờ nhiều quyền tự do lựa chọn trong kinh tế-chính trị hơn để sáng tạo hơn. Xóa bịp về "cá lớn nuốt cá bé".](https://www.minds.com/blog/view/840581200394821632)
+
+[Thế quyền, tu chính án thứ nhất của Hiến Pháp Hoa Kỳ và Thomas Jefferson.](https://www.minds.com/blog/view/840578843594432512)
+
+[Hàng trăm năm trước, sự tự do đã bị xuyên tạc bởi Jean-Jacques Rousseau như thế nào?](https://www.minds.com/blog/view/840578013441007616)
+
+[Về ông Trần Huỳnh Duy Thức và sách của ông ấy.](https://www.minds.com/blog/view/840577256701722624)
+
+[From Under the Rubble của Alexander Solzhenitsyn. Làm sao để hiểu chủ nghĩa xã hội từ một nhà văn Nga?](https://www.minds.com/blog/view/840576311670505472)
+
 [Năm vấn đề quan trọng của đất nước trong tương lai. Phật Giáo-Công Giáo: Chế độ cộng sản Việt Nam đã lợi dụng và khai thác như thế nào? Tại sao chúng ta không được mắc bẫy?](https://www.minds.com/blog/view/840275113993158656)
 
 [Về Barack Hussein Obama và mẹ của ông ta. Đám cánh tả rất hay tấn công đời tư của đối thủ nhưng bản chất đời tư chúng thì thúi quắc!](https://www.minds.com/blog/view/840121812446973952)
@@ -3905,6 +3919,10 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Rousseau: The Worldwide Tour.](https://www.nationalreview.com/liberal-fascism/rousseau-worldwide-tour-jonah-goldberg/)
+
+[Jean-Jacques Jihad.](https://www.nationalreview.com/2011/03/jean-jacques-jihad-andrew-c-mccarthy/)
 
 [Karl Marx: The Deadliest Ideas In The World.](https://freethepeople.org/karl-marx-the-deadliest-ideas-in-the-world/)
 
