@@ -20,6 +20,8 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Tình trạng xã hội chủ nghĩa ở Venezuela. Ngày 30-9-2017.](https://www.minds.com/blog/view/840627659942297600)
+
 [Việt Cộng/Tàu Cộng hay tuyên truyền về tương lai u ám của Việt Nam/xứ Tàu như Libya hay Syria nếu người dân muốn dân chủ? Về xứ Venezuela!](https://www.minds.com/blog/view/840589721640534016)
 
 [Bàn về tính toán của GDP của Tàu Cộng. Tăng trưởng GDP thực và nền kinh tế Đức. GDP có thể được thổi phồng nhờ bơm tín dụng (bơm tiền) như thế nào?](https://www.minds.com/blog/view/840588608942014464)
