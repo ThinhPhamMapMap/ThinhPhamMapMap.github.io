@@ -7346,17 +7346,19 @@ Bookmarks của Thịnh Phạm
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
 
+[Thống nhất Nam Bắc Hàn? The Kim Nhung Show. SBTN phát hình tối Thứ Ba mùng tám.](https://www.minds.com/blog/view/840862908893601792)
+
 ["Rồng Ngâm Váng Khúc Tân Thanh"](https://www.minds.com/blog/view/839464157223161856)
 
-[Mỹ-Hoa Đấu Khẩu. Thời sự ngày mai-Kim Nhung Show phát hình tối Thứ Ba 27.](https://www.minds.com/blog/view/839129065753976832)
+[Mỹ-Hoa Đấu Khẩu. Thời sự ngày mai-The Kim Nhung Show phát hình tối Thứ Ba 27.](https://www.minds.com/blog/view/839129065753976832)
 
-[Thuế Vụ tại Hoa Kỳ và Ác Mộng tại Bắc Kinh. Thời Sự Ngày Mai, tối Thứ Ba mùng ba trên SBTN.](https://www.minds.com/blog/view/839128288701374464)
+[Thuế Vụ tại Hoa Kỳ và Ác Mộng tại Bắc Kinh. The Kim Nhung Show. Thời Sự Ngày Mai, tối Thứ Ba mùng ba trên SBTN.](https://www.minds.com/blog/view/839128288701374464)
 
-[Bãi Mìn Syria. Kim Nhung Show, thu ngày 14 phát ngày 17 Tháng Tư.](https://www.minds.com/blog/view/839127860676845568)
+[Bãi Mìn Syria. The Kim Nhung Show, thu ngày 14 phát ngày 17 Tháng Tư.](https://www.minds.com/blog/view/839127860676845568)
 
-[Trung Quốc và Rắn Lột Da. Thời Sự Ngày Mai, SBTN phát hình tối Thứ Ba 180410.](https://www.minds.com/blog/view/839127402968293376)
+[Trung Quốc và Rắn Lột Da. The Kim Nhung Show. Thời Sự Ngày Mai, SBTN phát hình tối Thứ Ba 180410.](https://www.minds.com/blog/view/839127402968293376)
 
-[Viễn Ảnh Triều Tiên. Thời Sự Ngày Mai, thu hình ngày 27/4.](https://www.minds.com/blog/view/839126303482765312)
+[Viễn Ảnh Triều Tiên. The Kim Nhung Show. Thời Sự Ngày Mai, thu hình ngày 27/4.](https://www.minds.com/blog/view/839126303482765312)
 
 [170819\. Steve Bannon giải nhiệm. Xứ Iran. Vấn đề Bắc Hàn. Món nợ chìm ở Tàu Cộng.](https://www.youtube.com/watch?v=adjKPMG6SUI)
 
