@@ -20,6 +20,16 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Robert Reich và trò bịp bợm, gian trá về thống kê. Đúng là đàn em của Jimmy Carter.](https://www.minds.com/blog/view/841672018376720384)
+
+[Bơm tiền, bơm tín dụng tạo ra bong bóng tài sản, thịnh vượng giả tạo, tăng trưởng GDP ảo và nhằm để tước đoạt tài sản người dân một cách tinh vi.](https://www.minds.com/blog/view/841670511947984896)
+
+[Tham nhũng vừa phải "tạo ra" sự phát triển? Thật ngớ ngẩn khi đi tin là vậy. Nhà nước/chính phủ bành trướng, luật lệ phức tạp và tình trạng tham nhũng.](https://www.minds.com/blog/view/841668978850181120)
+
+[Bàn về LUẬT quyền sở hữu trí tuệ. Những góc nhìn khác nhau.](https://www.minds.com/blog/view/841668112577921024)
+
+[Người Mỹ (Hoa Kỳ) nghèo đói? Thật ngu xuẩn khi tin vào sự tuyên truyền nhảm nhí của chế độ cộng sản Việt Nam (Việt Cộng).](https://www.minds.com/blog/view/840957440634290176)
+
 [Tình trạng xã hội chủ nghĩa ở Venezuela. Ngày 30-9-2017.](https://www.minds.com/blog/view/840627659942297600)
 
 [Việt Cộng/Tàu Cộng hay tuyên truyền về tương lai u ám của Việt Nam/xứ Tàu như Libya hay Syria nếu người dân muốn dân chủ? Về xứ Venezuela!](https://www.minds.com/blog/view/840589721640534016)
