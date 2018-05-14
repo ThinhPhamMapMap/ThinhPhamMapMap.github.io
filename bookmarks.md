@@ -20,6 +20,14 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Mập Mạp trị đám đạo đức giả, "ổ tham nhũng" trong ngành "giáo dục" và "y tế".](https://www.minds.com/blog/view/842417773228052480)
+
+[Sự kết hợp AI (Artificial intelligence), IoT (Internet of things) và DLT (Distributed Ledger Technology) trong "thế giới tương lai".](https://www.minds.com/blog/view/842415518577438720)
+
+[Lý tưởng tự do và chúng ta.](https://www.minds.com/blog/view/842414987821821952)
+
+[Điểm lật Minsky của Tàu Cộng.](https://www.minds.com/blog/view/842414068382552064)
+
 [Robert Reich và trò bịp bợm, gian trá về thống kê. Đúng là đàn em của Jimmy Carter.](https://www.minds.com/blog/view/841672018376720384)
 
 [Bơm tiền, bơm tín dụng tạo ra bong bóng tài sản, thịnh vượng giả tạo, tăng trưởng GDP ảo và nhằm để tước đoạt tài sản người dân một cách tinh vi.](https://www.minds.com/blog/view/841670511947984896)
@@ -1038,7 +1046,7 @@ Bookmarks của Thịnh Phạm
 
 [Một câu nói của Milton Friedman về Adam Smith](https://www.minds.com/realThinhPham/blog/mt-cu-ni-ca-milton-friedman-v-adam-smith-784793078933233679)
 
-[Một chút suy ngẫm về bản thân và thời cuộc](https://www.minds.com/realThinhPham/blog/mt-cht-suy-ngm-v-bn-thn-v-thi-cuc-784793669080195083)
+[Một chút suy ngẫm về bản thân và thời cuộc](https://www.minds.com/blog/view/784793669080195083)
 
 [Một diễn đàn mở bàn luận hết mọi vấn đề về Muhammed giáo/Hồi giáo.](https://www.minds.com/realThinhPham/blog/mt-din-n-m-bn-lun-ht-mi-vn-v-muhammed-gio-hi-gio-784795096636727308)
 
@@ -3931,6 +3939,8 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Between Authoritarianism and Human Capital.](https://www.cato.org/publications/cato-online-forum/between-authoritarianism-human-capital)
 
 [Rousseau: The Worldwide Tour.](https://www.nationalreview.com/liberal-fascism/rousseau-worldwide-tour-jonah-goldberg/)
 
