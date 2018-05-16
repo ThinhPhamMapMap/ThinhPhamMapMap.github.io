@@ -20,6 +20,14 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Tại sao cần tư nhân hóa (một phần trong thúc đẩy tự do lựa chọn trong kinh tế-chính trị) hệ thống Bảo Hiểm Xã Hội?](https://www.minds.com/blog/view/843499061284167680)
+
+[Việt Sử Tiêu Án. Chuyện Nho Giáo đả kích Phật Giáo chỉ cũng để tiền hô hậu ủng cho nền kinh tế-chính trị tập quyền về tay hoàng đế.](https://www.minds.com/blog/view/843112151124226048)
+
+["Định chế" hay môi trường tự do lựa chọn trong kinh tế-chính trị sẽ là nguyên nhân cốt lõi của sự phát triển lâu dài.](https://www.minds.com/blog/view/843013854783025152)
+
+[Nghiên cứu mới chỉ ra rằng chính Tàu Cộng thực sự là thủ phạm chính cho chuyện hàng triệu công việc các ngành sản xuất/chế tạo bị mất đi ở Hoa Kỳ.](https://www.minds.com/blog/view/843012553818828800)
+
 [Mập Mạp trị đám đạo đức giả, "ổ tham nhũng" trong ngành "giáo dục" và "y tế".](https://www.minds.com/blog/view/842417773228052480)
 
 [Sự kết hợp AI (Artificial intelligence), IoT (Internet of things) và DLT (Distributed Ledger Technology) trong "thế giới tương lai".](https://www.minds.com/blog/view/842415518577438720)
