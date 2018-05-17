@@ -7374,6 +7374,8 @@ Bookmarks của Thịnh Phạm
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
 
+[Lỗ Túc Mắt Xanh trong Canh Bạc Mỹ-Hoa. Kim Nhung show.](https://www.minds.com/blog/view/843676230816645120)
+
 [Thống nhất Nam Bắc Hàn? The Kim Nhung Show. SBTN phát hình tối Thứ Ba mùng tám.](https://www.minds.com/blog/view/840862908893601792)
 
 ["Rồng Ngâm Váng Khúc Tân Thanh"](https://www.minds.com/blog/view/839464157223161856)
