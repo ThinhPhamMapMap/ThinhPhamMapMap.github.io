@@ -20,6 +20,8 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Tầm nhìn lãnh đạo quốc gia!](https://www.minds.com/blog/view/844042467279794176)
+
 [Tại sao cần tư nhân hóa (một phần trong thúc đẩy tự do lựa chọn trong kinh tế-chính trị) hệ thống Bảo Hiểm Xã Hội?](https://www.minds.com/blog/view/843499061284167680)
 
 [Việt Sử Tiêu Án. Chuyện Nho Giáo đả kích Phật Giáo chỉ cũng để tiền hô hậu ủng cho nền kinh tế-chính trị tập quyền về tay hoàng đế.](https://www.minds.com/blog/view/843112151124226048)
@@ -818,7 +820,7 @@ Bookmarks của Thịnh Phạm
 
 [Cánh tả chèn ép tự do kinh tế (cánh hữu) nhằm bảo vệ vị trí trên đỉnh cho tụi siêu giàu. Dân nghèo bị lừa từ sự GATO của chính mình. Lời tiên tri của Adam Smith.](https://www.minds.com/realThinhPham/blog/cnh-t-chn-p-t-do-kinh-t-cnh-hu-nhm-bo-v-v-tr-trn-nh-cho-ti-s-782589719706869768)
 
-[Cánh tả. Sự "ngu xuẩn" hiện nay của châu Âu và những vấn đề sâu xa cực kì khó khăn bên trong đó!](https://www.minds.com/realThinhPham/blog/cnh-t-s-ngu-xun-hin-nay-ca-chu-u-v-nhng-vn-su-xa-cc-k-kh-khn-782591407478022158)
+[Cánh tả. Sự "ngu xuẩn" hiện nay của châu Âu và những vấn đề sâu xa cực kì khó khăn bên trong đó!](https://www.minds.com/blog/view/782591407478022158)
 
 [Cato, FEE, HumanProgress.... những kẻ ngây thơ hay cố tình không hiểu về an ninh quốc gia. Tự do kinh tế với sự ngây thơ sẽ không đem lại tự do kinh tế thực sự.](https://www.minds.com/realThinhPham/blog/cato-fee-humanprogress-nhng-k-ngy-th-hay-c-tnh-khng-hiu-v-an-782592660513759241)
 
@@ -3947,6 +3949,8 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[The Myth:Jerusalem is Holy to Islam Because Muhammad Traveled There.](https://www.thereligionofpeace.com/pages/muhammad/jerusalem.aspx)
 
 [Between Authoritarianism and Human Capital.](https://www.cato.org/publications/cato-online-forum/between-authoritarianism-human-capital)
 
