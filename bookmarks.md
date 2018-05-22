@@ -20,6 +20,8 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Số phận đường cùng, không có sự lựa chọn của người dân Việt Nam.](https://www.minds.com/blog/view/845590831964151808)
+
 [Bức tranh tổng quan về xã hội Việt Nam.](https://www.minds.com/blog/view/845575340846505984)
 
 [Dollar lên giá và Hoa Kỳ hút tư bản mạnh mẽ.](https://www.minds.com/blog/view/845574692767817728)
