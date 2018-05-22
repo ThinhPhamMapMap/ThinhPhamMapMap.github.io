@@ -20,6 +20,12 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Bức tranh tổng quan về xã hội Việt Nam.](https://www.minds.com/blog/view/845575340846505984)
+
+[Dollar lên giá và Hoa Kỳ hút tư bản mạnh mẽ.](https://www.minds.com/blog/view/845574692767817728)
+
+[Tổng hợp bình luận về chiến lược trong "chiến tranh mậu dịch/thương mại" giữa Hoa Kỳ-Tàu Cộng.](https://www.minds.com/blog/view/845571840906420224)
+
 [Tầm nhìn lãnh đạo quốc gia!](https://www.minds.com/blog/view/844042467279794176)
 
 [Tại sao cần tư nhân hóa (một phần trong thúc đẩy tự do lựa chọn trong kinh tế-chính trị) hệ thống Bảo Hiểm Xã Hội?](https://www.minds.com/blog/view/843499061284167680)
