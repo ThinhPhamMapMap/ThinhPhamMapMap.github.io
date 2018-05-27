@@ -20,6 +20,22 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Hiện tại, đấu tranh "dân chủ hóa" hiệu quả như thế nào? Bằng lòng yêu nước và "thay đổi tư tưởng một cách hòa bình"!](https://www.minds.com/blog/view/847385454142750720)
+
+[Tự do lựa chọn. Phân quyền và chuyện các tướng.](https://www.minds.com/blog/view/846963804316147712)
+
+[Đê Mê Các Tướng. Sự thất bại của miền Nam Việt Nam và vai trò của Johnson lẫn McNamara.](https://www.minds.com/blog/view/846794850809454592)
+
+[Xóa bỏ Fed-ngân hàng trung ương Hoa Kỳ, tại sao không? Fed Funds Rate và chủ nghĩa thân tộc, cấu kết chính trị.](https://www.minds.com/blog/view/846659291908866048)
+
+[Donald Trump và luật Dodd-Frank.](https://www.minds.com/blog/view/846658494451982336)
+
+[Địa chính trị của xứ Iran. Và tại sao xứ này rất khó "kĩ nghệ hóa" lẫn hướng (về phía) Nam để ra biển!](https://www.minds.com/blog/view/846657652871331840)
+
+[Velocity of money và tổng thống tệ nhất lịch sử Hoa Kỳ: Barack Obama.](https://www.minds.com/blog/view/845695416369238016)
+
+[BlackRock: Câu chuyện 6.300 tỷ USD và thời của đầu tư thụ động. Về Big Data và "tiệm cận hiểu biết thị trường".](https://www.minds.com/blog/view/845685741556944896)
+
 [Số phận đường cùng, không có sự lựa chọn của người dân Việt Nam.](https://www.minds.com/blog/view/845590831964151808)
 
 [Bức tranh tổng quan về xã hội Việt Nam.](https://www.minds.com/blog/view/845575340846505984)
@@ -3958,6 +3974,18 @@ Bookmarks của Thịnh Phạm
 
 ### Political Economics
 
+[Why Government Corruption Is the True Enemy of Economic Freedom.](https://www.heritage.org/international-economies/commentary/why-government-corruption-the-true-enemy-economic-freedom)
+
+[Trump tax reform cements US as world economic leader.](https://www.foxbusiness.com/markets/trump-tax-reform-cements-us-as-world-economic-leader)
+
+[Velocity of M2 Money Stock.](https://fred.stlouisfed.org/series/M2V)
+
+[Understanding How the Federal Reserve Creates Money.](https://www.investopedia.com/articles/investing/081415/understanding-how-federal-reserve-creates-money.asp)
+
+[Who decides when to print money in the U.S.?](https://www.investopedia.com/ask/answers/082515/who-decides-when-print-money-us.asp)
+
+[Why socialism always fails.](http://www.aei.org/publication/why-socialism-always-fails/)
+
 [The Myth:Jerusalem is Holy to Islam Because Muhammad Traveled There.](https://www.thereligionofpeace.com/pages/muhammad/jerusalem.aspx)
 
 [Between Authoritarianism and Human Capital.](https://www.cato.org/publications/cato-online-forum/between-authoritarianism-human-capital)
@@ -7385,6 +7413,8 @@ Bookmarks của Thịnh Phạm
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
+
+[Liên Âu có cứu được Iran? Thời Sự Ngày Mai. The Kim Nhung Show.](https://www.minds.com/blog/view/845924735490711552)
 
 [Lỗ Túc Mắt Xanh trong Canh Bạc Mỹ-Hoa. Kim Nhung show.](https://www.minds.com/blog/view/843676230816645120)
 
