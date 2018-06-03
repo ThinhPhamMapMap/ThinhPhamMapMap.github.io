@@ -20,6 +20,8 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Vài chỉ số so sánh Việt Nam và Venezuela. "Lạm phát" và khan hiếm!](https://www.minds.com/blog/view/848253396070825984)
+
 [Hiện tại, đấu tranh "dân chủ hóa" hiệu quả như thế nào? Bằng lòng yêu nước và "thay đổi tư tưởng một cách hòa bình"!](https://www.minds.com/blog/view/847385454142750720)
 
 [Tự do lựa chọn. Phân quyền và chuyện các tướng.](https://www.minds.com/blog/view/846963804316147712)
@@ -7413,6 +7415,8 @@ Bookmarks của Thịnh Phạm
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
+
+[Tội ác Xã hội Chủ nghĩa tại Venezuela. Thời Sự Ngày Mai trên Kim Nhung Show tối Thứ Ba 29.](https://www.minds.com/blog/view/848588000186646528)
 
 [Liên Âu có cứu được Iran? Thời Sự Ngày Mai. The Kim Nhung Show.](https://www.minds.com/blog/view/845924735490711552)
 
