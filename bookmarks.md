@@ -20,6 +20,10 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Tàu Cộng "bá đạo" về R&D, nghiên cứu khoa học, thuật lý (hay technology)!?](https://www.minds.com/blog/view/850735852073893888)
+
+[Năm kịch bản cho Việt Nam trong tương lai. Hãy thử hỏi đảng Cộng Sản lựa chọn thế nào và chính người dân Việt Nam chọn điều gì?](https://www.minds.com/blog/view/850082995878408192)
+
 [Vài chỉ số so sánh Việt Nam và Venezuela. "Lạm phát" và khan hiếm!](https://www.minds.com/blog/view/848253396070825984)
 
 [Hiện tại, đấu tranh "dân chủ hóa" hiệu quả như thế nào? Bằng lòng yêu nước và "thay đổi tư tưởng một cách hòa bình"!](https://www.minds.com/blog/view/847385454142750720)
