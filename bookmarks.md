@@ -20,6 +20,16 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Tám chiêu tạm thời Hoa Kỳ có thể sử dụng để nắn gân Tàu Cộng.](https://www.minds.com/blog/view/857297361406861312)
+
+[Hai thế giới. Giấc mơ và vị đắng.](https://www.minds.com/blog/view/856945664251281408)
+
+[Bảy lẽ THẮNG của người dân Việt Nam.](https://www.minds.com/blog/view/855066986844356608)
+
+[Bàn về luật "an ninh mạng".](https://www.minds.com/blog/view/853312197034573824)
+
+["Sai lầm" trong vụ Thiên An Môn và ngẫm về sự đàn áp bằng quân đội.](https://www.minds.com/blog/view/852905734105628672)
+
 [Tàu Cộng "bá đạo" về R&D, nghiên cứu khoa học, thuật lý (hay technology)!?](https://www.minds.com/blog/view/850735852073893888)
 
 [Năm kịch bản cho Việt Nam trong tương lai. Hãy thử hỏi đảng Cộng Sản lựa chọn thế nào và chính người dân Việt Nam chọn điều gì?](https://www.minds.com/blog/view/850082995878408192)
@@ -3980,6 +3990,12 @@ Bookmarks của Thịnh Phạm
 
 ### Political Economics
 
+[Austrian Economics Is Essential to Understand Booms, Busts, and Money Itself.](https://fee.org/articles/austrian-economics-is-essential-to-understand-booms-busts-and-money-itself/)
+
+[The Internet Sales Taxes Will Hurt Small Businesses and Make Online Shopping More Expensive.](https://fee.org/articles/the-internet-sales-taxes-will-hurt-small-businesses-and-make-online-shopping-more-expensive/)
+
+[Venezuela's Latest Desperate Plan.](https://www.forbes.com/sites/simonconstable/2018/06/14/venezuelas-latest-desperate-plan/#77d9ab2b44fe)
+
 [Why Government Corruption Is the True Enemy of Economic Freedom.](https://www.heritage.org/international-economies/commentary/why-government-corruption-the-true-enemy-economic-freedom)
 
 [Trump tax reform cements US as world economic leader.](https://www.foxbusiness.com/markets/trump-tax-reform-cements-us-as-world-economic-leader)
@@ -7419,6 +7435,12 @@ Bookmarks của Thịnh Phạm
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
+
+[Trận Chiến Mỹ-Hoa: Cận Cảnh và Viễn Ảnh. The Kim Nhung Show-Thời Sự Ngày Mai-Thu hình Thứ Hai, phát tối Thứ Ba 19.](https://www.minds.com/blog/view/856904200071036928)
+
+[Lột Mặt Nạ Bắc Kinh. Thời Sự Ngày Mai. Kim Nhung Show tối Thứ Ba 12.](https://www.minds.com/blog/view/853648090136117248)
+
+[Thế Giới Trong Một Tuần Hỗn Loạn. Thời Sự Ngày Mai. Kim Nhung Show trên SBTN tối Thứ Ba mùng năm.](https://www.minds.com/blog/view/851124274612969472)
 
 [Tội ác Xã hội Chủ nghĩa tại Venezuela. Thời Sự Ngày Mai trên Kim Nhung Show tối Thứ Ba 29.](https://www.minds.com/blog/view/848588000186646528)
 
