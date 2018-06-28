@@ -20,6 +20,12 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[8 điểm yếu/tử huyệt mà Hoa Kỳ có thể dùng để đối phó và răn đe Tàu Cộng.](https://www.minds.com/blog/view/859079147170377728)
+
+[Khi chúng ta nói về đạo đức....](https://www.minds.com/blog/view/857581340278185984)
+
+[Hiện trạng thực sự của Việt Nam hiện tại: là thuộc địa thực tế của Tàu Cộng, chỉ thiếu tuyên bố chính thức.](https://www.minds.com/blog/view/857572876122382336)
+
 [Tám chiêu tạm thời Hoa Kỳ có thể sử dụng để nắn gân Tàu Cộng.](https://www.minds.com/blog/view/857297361406861312)
 
 [Hai thế giới. Giấc mơ và vị đắng.](https://www.minds.com/blog/view/856945664251281408)
@@ -3989,6 +3995,10 @@ Bookmarks của Thịnh Phạm
 [Mạng xã hội Diaspora. Mạng chia sẻ video BitTube. Ngẫm về ngân hàng trung ương trong tương lai khi thuật lý (technology) thay đổi.](https://www.facebook.com/groups/695986580606802/permalink/758869617651831/)
 
 ### Political Economics
+
+[Ben Shapiro nói về giới tính.](https://www.facebook.com/youngamericasfoundation/videos/10155850565687408/)
+
+[Đừng Sợ: Lòng Can Đảm và Những Nguyên Tắc Đạo Đức Công Dân.](https://icevn.org/vi/blog/dung-so-long-can-dam-va-nhung-nguyen-tac-dao-duc-cong-dan/)
 
 [Austrian Economics Is Essential to Understand Booms, Busts, and Money Itself.](https://fee.org/articles/austrian-economics-is-essential-to-understand-booms-busts-and-money-itself/)
 
