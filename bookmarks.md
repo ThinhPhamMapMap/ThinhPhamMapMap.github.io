@@ -20,6 +20,10 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Từ Blockchain đến DLT. Web 3.0, khái niệm "decentralized social media" và ý tưởng về mạng xã hội kiểu mới trong tương lai.](https://www.minds.com/blog/view/860554274191491072)
+
+[Luật an ninh mạng. Minds và mạng xã hội sự thay thế Facebook. Web 3.0 và 5G sẽ tạo ra cuộc cách mạng technology ảnh hưởng đến xã hội!?](https://www.minds.com/blog/view/859691159737802752)
+
 [8 điểm yếu/tử huyệt mà Hoa Kỳ có thể dùng để đối phó và răn đe Tàu Cộng.](https://www.minds.com/blog/view/859079147170377728)
 
 [Khi chúng ta nói về đạo đức....](https://www.minds.com/blog/view/857581340278185984)
@@ -7445,6 +7449,8 @@ Bookmarks của Thịnh Phạm
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
 
 ### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
+
+[Mưu thuật của Trung Cộng. Thời Sự Ngày Mai-The Kim Nhung Show trên SBTN tối Thứ Ba mùng ba.](https://www.minds.com/blog/view/861284007140790272)
 
 [Trận Chiến Mỹ-Hoa: Cận Cảnh và Viễn Ảnh. The Kim Nhung Show-Thời Sự Ngày Mai-Thu hình Thứ Hai, phát tối Thứ Ba 19.](https://www.minds.com/blog/view/856904200071036928)
 
