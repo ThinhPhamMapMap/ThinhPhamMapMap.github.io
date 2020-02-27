@@ -20,6 +20,28 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Làm sao so sánh? Dĩ nhiên, muốn so sánh bất cứ cái gì cũng cần có "chuẩn" so sánh.](https://www.minds.com/realThinhPham/blog/lm-sao-so-snh-d-nhin-mun-so-snh-bt-c-ci-g-cng-cn-c-chun-so-s-1079755444347596800)
+
+[Sự tương liên số phận giữa Việt Cộng và Tàu Cộng.](https://www.minds.com/realThinhPham/blog/s-tng-lin-s-phn-gia-vit-cng-v-tu-cng-1079752184513777664)
+
+[Quốc lực, tính "địa phương hóa" và xã hội tự do, cởi mở.](https://www.minds.com/realThinhPham/blog/quc-lc-tnh-a-phng-ha-v-x-hi-t-do-ci-m-1079751296252465152)
+
+[Some people get rich studying artificial intelligence. Me, I make money studying natural stupidity.](https://www.minds.com/realThinhPham/blog/some-people-get-rich-studying-artificial-intelligence-me-i-m-1079749461945065472)
+
+[Lưỡng nan của Hoa Kỳ tại Iraq.](https://www.minds.com/realThinhPham/blog/lng-nan-ca-hoa-k-ti-iraq-1079748572760854528)
+
+[Tình đồng chó, diễn kịch và bi kịch của người dân, đang xảy ra ở Iran.](https://www.minds.com/realThinhPham/blog/tnh-ng-ch-din-kch-v-bi-kch-ca-ngi-dn-ang-xy-ra-iran-1079747096969605120)
+
+[NTD hay Epoch Times là điển hình khi ta so sánh với Việt Tân, Nhật Ký Yêu Nước hay Khai Sáng Kỷ Nguyên Thứ Hai](https://www.minds.com/realThinhPham/blog/ntd-hay-epoch-times-l-in-hnh-khi-ta-so-snh-vi-vit-tn-nht-k-y-1079744662787190784)
+
+[Việt Nam thành một ổ người bóc lột người ở mức cặn bã nhất.](https://www.minds.com/realThinhPham/blog/vit-nam-thnh-mt-ngi-bc-lt-ngi-mc-cn-b-nht-1079743832131981312)
+
+[Sự thật về cơ sở hạ tầng của Tàu Cộng.](https://www.minds.com/realThinhPham/blog/s-tht-v-c-s-h-tng-ca-tu-cng-1079743196789862400)
+
+[Mỗi người chúng ta nên làm gì trong tình trạng đất nước Việt Nam hiện nay!?](https://www.minds.com/realThinhPham/blog/mi-ngi-chng-ta-nn-lm-g-trong-tnh-trng-t-nc-vit-nam-hin-nay-1079742181447016448)
+
+[Vịt tị nạn luận thế sự.](https://www.minds.com/realThinhPham/blog/vt-t-nn-lun-th-s-1079741185433882624)
+
 [Từ Blockchain đến DLT. Web 3.0, khái niệm "decentralized social media" và ý tưởng về mạng xã hội kiểu mới trong tương lai.](https://www.minds.com/blog/view/860554274191491072)
 
 [Luật an ninh mạng. Minds và mạng xã hội sự thay thế Facebook. Web 3.0 và 5G sẽ tạo ra cuộc cách mạng technology ảnh hưởng đến xã hội!?](https://www.minds.com/blog/view/859691159737802752)
