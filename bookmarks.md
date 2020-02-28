@@ -20,6 +20,48 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Vấn đề của sự miễn phí là gì?](https://www.minds.com/realThinhPham/blog/vn-ca-s-min-ph-l-g-1080063720713330688)
+
+[Từ một thằng chó đẻ đang làm ở Google cho đến chuyện dân chủ hóa Việt Nam.](https://www.minds.com/realThinhPham/blog/t-mt-thng-ch-ang-lm-google-cho-n-chuyn-dn-ch-ha-vit-nam-1080063237658443776)
+
+[Chiến thuật trấn áp và tiêu diệt biểu tình Hong Kong của Tàu Cộng.](https://www.minds.com/realThinhPham/blog/chin-thut-trn-p-v-tiu-dit-biu-tnh-hong-kong-ca-tu-cng-1080062719478288384)
+
+[Khi đại tài phiệt Bill Gates nói ngược, nói xuôi, tại sao lại vậy?](https://www.minds.com/realThinhPham/blog/khi-i-ti-phit-bill-gates-ni-ngc-ni-xui-ti-sao-li-vy-1080062321424723968)
+
+[Làm sao ngăn chặn sự toàn trị, chèn ép tự do ngôn luận của Facebook, Google hay Twitter trên mạng xã hội?](https://www.minds.com/realThinhPham/blog/lm-sao-ngn-chn-s-ton-tr-chn-p-t-do-ngn-lun-ca-facebook-googl-1080061693663838208)
+
+[Quách Văn Quý chơi lớn.](https://www.minds.com/realThinhPham/blog/quch-vn-qu-chi-ln-1080058929382621184)
+
+[Học thuyết Brezhnev. Hạ cánh mềm và hạ cánh cứng.](https://www.minds.com/realThinhPham/blog/hc-thuyt-brezhnev-h-cnh-mm-v-h-cnh-cng-1080058194428030976)
+
+[Hiến pháp tự do trong trí tưởng tượng của Thomas Jefferson. Tư tưởng về thế quyền của Thomas Jefferson.](https://www.minds.com/realThinhPham/blog/hin-php-t-do-trong-tr-tng-tng-ca-thomas-jefferson-t-tng-v-th-1080055754714861568)
+
+[Hollywood rất khoái "làm ngây thơ hóa" mấy "blond girls".](https://www.minds.com/realThinhPham/blog/hollywood-rt-khoi-lm-ngy-th-ha-my-blond-girls-1080055184808079360)
+
+[AI (trí năng nhân tạo) là công cụ cho các chế độ toàn trị, tạo ra mô hình cộng sản mơ ước?](https://www.minds.com/realThinhPham/blog/ai-tr-nng-nhn-to-l-cng-c-cho-cc-ch-ton-tr-to-ra-m-hnh-cng-sn-1080054589921554432)
+
+[Tương lai Việt Nam sẽ là gì?](https://www.minds.com/realThinhPham/blog/tng-lai-vit-nam-s-l-g-1080054023415222272)
+
+[Ngẫm về open source, big tech và chuyện "miễn phí".](https://www.minds.com/realThinhPham/blog/ngm-v-open-source-big-tech-v-chuyn-min-ph-1080047092516605952)
+
+[Thị trường Tàu thực sự rộng lớn nhất?](https://www.minds.com/realThinhPham/blog/th-trng-tu-thc-s-rng-ln-nht-1080046570638798848)
+
+[Chuyện khi ai đó lương thiện thiên tả nhìn từ lịch sử lập quốc của Hoa Kỳ.](https://www.minds.com/realThinhPham/blog/chuyn-khi-ai-lng-thin-thin-t-nhn-t-lch-s-lp-quc-ca-hoa-k-1080046219853688832)
+
+[Tuyên truyền và thực tế.](https://www.minds.com/realThinhPham/blog/tuyn-truyn-v-thc-t-1080045737165017088)
+
+[Làm ăn ở Phi Châu?](https://www.minds.com/realThinhPham/blog/lm-n-phi-chu-1080039205321023488)
+
+[Lập luận nhà nước không nên can thiệp hay nên can thiệp ở các xứ độc tài toàn trị luôn là lập luận bịp bợm.](https://www.minds.com/realThinhPham/blog/lp-lun-nh-nc-khng-nn-can-thip-hay-nn-can-thip-cc-x-c-ti-ton-1080038582546198528)
+
+[Sự thật trần trụi về GDP của nước Tàu.](https://www.minds.com/realThinhPham/blog/s-tht-trn-tri-v-gdp-ca-nc-tu-1080037576492052480)
+
+[Từ một nhân vật cho đến chuyện fact check. Làm sao để kiểm tra thông tin?](https://www.minds.com/realThinhPham/blog/t-mt-nhn-vt-cho-n-chuyn-fact-check-lm-sao-kim-tra-thng-tin-1080037042383876096)
+
+[Dự luật cắt ưu đãi và đối xử công bằng với Big Tech như những doanh nghiệp hay cá nhân khác.](https://www.minds.com/realThinhPham/blog/d-lut-ct-u-i-v-i-x-cng-bng-vi-big-tech-nh-nhng-doanh-nghip-h-1080036252338069504)
+
+[Thiện và ác.](https://www.minds.com/realThinhPham/blog/thin-v-c-1080035162435592192)
+
 [Làm sao so sánh? Dĩ nhiên, muốn so sánh bất cứ cái gì cũng cần có "chuẩn" so sánh.](https://www.minds.com/realThinhPham/blog/lm-sao-so-snh-d-nhin-mun-so-snh-bt-c-ci-g-cng-cn-c-chun-so-s-1079755444347596800)
 
 [Sự tương liên số phận giữa Việt Cộng và Tàu Cộng.](https://www.minds.com/realThinhPham/blog/s-tng-lin-s-phn-gia-vit-cng-v-tu-cng-1079752184513777664)
