@@ -20,6 +20,8 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Hoàn cảnh khác nhau sẽ có cảm nhận khác nhau.](https://www.minds.com/realThinhPham/blog/hon-cnh-khc-nhau-s-c-cm-nhn-khc-nhau-1080064897257545728)
+
 [Vấn đề của sự miễn phí là gì?](https://www.minds.com/realThinhPham/blog/vn-ca-s-min-ph-l-g-1080063720713330688)
 
 [Từ một thằng chó đẻ đang làm ở Google cho đến chuyện dân chủ hóa Việt Nam.](https://www.minds.com/realThinhPham/blog/t-mt-thng-ch-ang-lm-google-cho-n-chuyn-dn-ch-ha-vit-nam-1080063237658443776)
