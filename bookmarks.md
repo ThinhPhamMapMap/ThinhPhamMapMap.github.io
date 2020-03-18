@@ -20,6 +20,16 @@ Bookmarks của Thịnh Phạm
 
 ### minds.com
 
+[Những người mê kinh tế kế hoạch tập trung đã phá hủy nền kinh tế của La Mã như thế nào?](https://www.minds.com/realThinhPham/blog/nhng-ngi-m-kinh-t-k-hoch-tp-trung-hy-dit-nn-kinh-t-ca-la-m-n-1086916613384720384)
+
+[Mê chủ nghĩa xã hội vì đố kị hay ghen tị.](https://www.minds.com/realThinhPham/blog/m-ch-ngha-x-hi-v-k-hay-ghen-t-1086914855828738048)
+
+[Quang Trung-Gia Long và chủ nghĩa tự do cổ điển.](https://www.minds.com/realThinhPham/blog/quang-trung-gia-long-v-ch-ngha-t-do-c-in-1086914347511128064)
+
+[Sự tụt hậu và sự cải thiện cuộc sống theo thời gian.](https://www.minds.com/realThinhPham/blog/s-tt-hu-v-s-ci-thin-cuc-sng-theo-thi-gian-1086913978624024576)
+
+[Kinh trị sử (lịch sử kinh tế chính trị) của vụ khủng hoảng tài chính toàn cầu năm 2007-2008.](https://www.minds.com/realThinhPham/blog/kinh-tr-s-lch-s-kinh-t-chnh-tr-ca-v-khng-hong-ti-chnh-ton-cu-1086912884916899840)
+
 [Hoàn cảnh khác nhau sẽ có cảm nhận khác nhau.](https://www.minds.com/realThinhPham/blog/hon-cnh-khc-nhau-s-c-cm-nhn-khc-nhau-1080064897257545728)
 
 [Vấn đề của sự miễn phí là gì?](https://www.minds.com/realThinhPham/blog/vn-ca-s-min-ph-l-g-1080063720713330688)
