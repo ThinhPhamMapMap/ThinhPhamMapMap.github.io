@@ -1,4 +1,4 @@
-Bookmarks của Thịnh Phạm
+# Bookmarks của Thịnh Phạm
 =========
 
 ### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Chúng ta có 7 mục lục. Xin cảm ơn
@@ -19,6 +19,18 @@ Bookmarks của Thịnh Phạm
 
 
 ### minds.com
+
+[Nước Mỹ không phải là một nền dân chủ và đó là điều tốt đẹp. Nước Mỹ được xây dựng là một nền Cộng hòa và sẽ luôn luôn là như vậy.](https://www.minds.com/realThinhPham/blog/nc-m-khng-phi-l-mt-nn-dn-ch-v-l-iu-tt-p-nc-m-c-xy-dng-l-mt-n-1097170061625303040)
+
+[CÂU CHUYỆN THUỐC ĐIỀU TRỊ COVID19 ĐANG BỊ XUYÊN TẠC NHƯ THẾ NÀO?](https://www.minds.com/realThinhPham/blog/cu-chuyn-thuc-iu-tr-covid19-ang-b-xuyn-tc-nh-th-no-1097169400254603264)
+
+[Dịch cúm Tàu Cộng và thông tin từ Mỹ.](https://www.minds.com/realThinhPham/blog/dch-cm-tu-cng-v-thng-tin-t-m-1097168190746185728)
+
+[Đừng quá tử tế và mất cảnh giác với kẻ tiểu nhân (là Tàu Cộng).](https://www.minds.com/realThinhPham/blog/ng-qu-t-t-v-mt-cnh-gic-vi-k-tiu-nhn-l-tu-cng-1097167573081563136)
+
+[Rồi rốt cuộc, chỉ có số liệu, dữ kiện từ Hoa Kỳ là đáng tin.](https://www.minds.com/realThinhPham/blog/ri-rt-cuc-ch-c-s-liu-d-kin-t-hoa-k-l-ng-tin-1097167119416086528)
+
+[Mục đích và chiến lược của Tàu Cộng để độc tài toàn trị hóa thế giới này.](https://www.minds.com/realThinhPham/blog/mc-ch-v-chin-lc-ca-tu-cng-c-ti-ton-tr-ha-th-gii-ny-1097166790960140288)
 
 [Những người mê kinh tế kế hoạch tập trung đã phá hủy nền kinh tế của La Mã như thế nào?](https://www.minds.com/realThinhPham/blog/nhng-ngi-m-kinh-t-k-hoch-tp-trung-hy-dit-nn-kinh-t-ca-la-m-n-1086916613384720384)
 
