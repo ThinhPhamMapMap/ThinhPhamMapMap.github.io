@@ -19,6 +19,14 @@
 
 ### minds.com
 
+[Một khả năng khác và sai lầm của tôi trong vụ TPP.](https://www.minds.com/realThinhPham/blog/mt-kh-nng-khc-v-sai-lm-ca-ti-trong-v-tpp-1099459957551669248)
+
+[Làm sao để chế độ cộng sản cai trị đất nước Việt Nam vĩnh viễn? Phần 1. Bán nước hại dân.](https://www.minds.com/realThinhPham/blog/lm-sao-ch-cng-sn-cai-tr-t-nc-vit-nam-vnh-vin-phn-1-bn-nc-hi-1099458932923346944)
+
+[Quyền tự quyết của người dân trong dịch bệnh cúm Tàu Cộng ở Hoa Kỳ.](https://www.minds.com/realThinhPham/blog/quyn-t-quyt-ca-ngi-dn-trong-dch-bnh-cm-tu-cng-hoa-k-1099458403100651520)
+
+[Một góc nhìn nhỏ cho chuyện so sánh định chế tự do, dân chủ và ách độc tài khi đối phó dịch cúm Tàu Cộng.](https://www.minds.com/realThinhPham/blog/mt-gc-nhn-nh-cho-chuyn-so-snh-nh-ch-t-do-dn-ch-v-ch-c-ti-khi-1099457916863389696)
+
 [Nước Mỹ không phải là một nền dân chủ và đó là điều tốt đẹp. Nước Mỹ được xây dựng là một nền Cộng hòa và sẽ luôn luôn là như vậy.](https://www.minds.com/realThinhPham/blog/nc-m-khng-phi-l-mt-nn-dn-ch-v-l-iu-tt-p-nc-m-c-xy-dng-l-mt-n-1097170061625303040)
 
 [CÂU CHUYỆN THUỐC ĐIỀU TRỊ COVID19 ĐANG BỊ XUYÊN TẠC NHƯ THẾ NÀO?](https://www.minds.com/realThinhPham/blog/cu-chuyn-thuc-iu-tr-covid19-ang-b-xuyn-tc-nh-th-no-1097169400254603264)
