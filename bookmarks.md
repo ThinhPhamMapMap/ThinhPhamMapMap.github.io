@@ -19,6 +19,14 @@
 
 ### minds.com
 
+[KHÔNG CHÍNH SÁCH NÀO CÓ THỂ CỨU LẤY MẠNG SỐNG, NÓ CHỈ CÓ THỂ TRAO ĐỔI MẠNG SỐNG.](https://www.minds.com/realThinhPham/blog/khng-chnh-sch-no-c-th-cu-ly-mng-sng-n-ch-c-th-trao-i-mng-sng-1102597896650559488)
+
+[TRUNG QUỐC NHÌN THẾ GIỚI NHƯ THẾ NÀO](https://www.minds.com/realThinhPham/blog/trung-quc-nhn-th-gii-nh-th-no-1102596915918045184)
+
+[Khi thất vọng là điều bình thường trong cuộc sống.](https://www.minds.com/realThinhPham/blog/khi-tht-vng-l-iu-bnh-thng-trong-cuc-sng-1102595970461605888)
+
+[Khi khoa học cũng là chính trị trong dịch bệnh cúm Tàu Cộng.](https://www.minds.com/realThinhPham/blog/khi-khoa-hc-cng-l-chnh-tr-trong-dch-bnh-cm-tu-cng-1102594609022468096)
+
 [Một khả năng khác và sai lầm của tôi trong vụ TPP.](https://www.minds.com/realThinhPham/blog/mt-kh-nng-khc-v-sai-lm-ca-ti-trong-v-tpp-1099459957551669248)
 
 [Làm sao để chế độ cộng sản cai trị đất nước Việt Nam vĩnh viễn? Phần 1. Bán nước hại dân.](https://www.minds.com/realThinhPham/blog/lm-sao-ch-cng-sn-cai-tr-t-nc-vit-nam-vnh-vin-phn-1-bn-nc-hi-1099458932923346944)
