@@ -19,6 +19,26 @@
 
 ### minds.com
 
+[Nhân tính.](https://www.minds.com/realThinhPham/blog/nhn-tnh-1106163607164715008)
+
+[Những cái bẫy được giăng ra bên ngoài địa ngục Việt Nam.](https://www.minds.com/realThinhPham/blog/nhng-ci-by-c-ging-ra-bn-ngoi-a-ngc-vit-nam-1106154793133178880)
+
+[Nô lệ Việt Nam.](https://www.minds.com/realThinhPham/blog/n-l-vit-nam-1106153240335974400)
+
+[Tại sao chế độ cộng sản luôn nói về "cách mạng 4.0" hay "kinh tế số"? Vì ngành ICT của Việt Nam.](https://www.minds.com/realThinhPham/blog/ti-sao-ch-cng-sn-lun-ni-v-cch-mng-4-0-hay-kinh-t-s-v-ngnh-ic-1106151240437301248)
+
+[Dân Tàu, Việt bị bóc lột, ngành ICT.](https://www.minds.com/realThinhPham/blog/dn-tu-b-bc-lt-ngnh-ict-1106142968563924992)
+
+[Hoa Kỳ đối phó với Việt Cộng?](https://www.minds.com/realThinhPham/blog/hoa-k-i-ph-vi-vit-cng-1106141573408915456)
+
+[Chế độ độc tài toàn trị Việt Cộng và chuyện nói láo, bịp bợm.](https://www.minds.com/realThinhPham/blog/ch-c-ti-ton-tr-vit-cng-v-chuyn-ni-lo-bp-bm-1106139947675713536)
+
+[Open source software, sức mạnh của Hoa Kỳ và sự phụ thuộc của Tàu Cộng. Khi Harmony OS chỉ là trò bịp.](https://www.minds.com/realThinhPham/blog/open-source-software-sc-mnh-ca-hoa-k-v-s-ph-thuc-ca-tu-cng-k-1106139052323500032)
+
+[CORONA VIRUS CHỦNG MỚI LÀ NHÂN TẠO, HY VỌNG MỚI CHO TOÀN CẦU?](https://www.minds.com/realThinhPham/blog/corona-virus-chng-mi-l-nhn-to-hy-vng-mi-cho-ton-cu-1105925941451706368)
+
+[CHÍNH SÁCH HÀNG ĐẦU CỦA TT TRUMP LÀ CHẬN ĐỨNG ÂM MƯU BÁ QUYỀN ĐẠI HÁN CỦA HỌ TẬP](https://www.minds.com/realThinhPham/blog/chi-nh-sa-ch-ha-ng-u-cu-a-tt-trump-la-ch-n-ng-m-mu-ba-quy-n-1105911147017424896)
+
 [KHÔNG CHÍNH SÁCH NÀO CÓ THỂ CỨU LẤY MẠNG SỐNG, NÓ CHỈ CÓ THỂ TRAO ĐỔI MẠNG SỐNG.](https://www.minds.com/realThinhPham/blog/khng-chnh-sch-no-c-th-cu-ly-mng-sng-n-ch-c-th-trao-i-mng-sng-1102597896650559488)
 
 [TRUNG QUỐC NHÌN THẾ GIỚI NHƯ THẾ NÀO](https://www.minds.com/realThinhPham/blog/trung-quc-nhn-th-gii-nh-th-no-1102596915918045184)
