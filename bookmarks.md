@@ -19,6 +19,28 @@
 
 ### minds.com
 
+[Diễn đàn trái chiều của ông Vũ Linh.](https://www.minds.com/realThinhPham/blog/din-n-tri-chiu-ca-ng-v-linh-1125399489124929536)
+
+[Hoàn cảnh lịch sử của ông Trương Vĩnh Ký.](https://www.minds.com/realThinhPham/blog/hon-cnh-lch-s-ca-ng-trng-vnh-k-1125398312416161792)
+
+[Chính trị học, kinh tế học, luật học, chiến tranh, lịch sử, hay cả thần học hết thảy cần được người yêu nước ưu tiên học hỏi và tìm hiểu.](https://www.minds.com/realThinhPham/blog/chnh-tr-hc-kinh-t-hc-lut-hc-chin-tranh-lch-s-hay-c-thn-hc-ht-1125396920556384256)
+
+[Thay mặt các nhà môi trường, tôi xin lỗi đã gây ra sự sợ hãi về khí hậu.](https://www.minds.com/realThinhPham/blog/thay-mt-cc-nh-mi-trng-ti-xin-li-gy-ra-s-s-hi-v-kh-hu-1125395360537088000)
+
+[Sự thật của huyền thoại "ăn cắp và theo dõi" trong trường hợp Hoa Kỳ và Tàu Cộng.](https://www.minds.com/realThinhPham/blog/s-tht-ca-huyn-thoi-n-cp-v-theo-di-trong-trng-hp-hoa-k-v-tu-c-1125394633216966656)
+
+[Big Tech, điều khoản 230 và tự do ngôn luận.](https://www.minds.com/realThinhPham/blog/big-tech-iu-khon-230-v-t-do-ngn-lun-1125393903324196864)
+
+[Ưu điểm của nền Cộng Hòa qua lịch sử. Góc nhìn "khác đi" từ lý tưởng tự do.](https://www.minds.com/realThinhPham/blog/u-im-ca-nn-cng-ha-qua-lch-s-gc-nhn-khc-i-t-l-tng-t-do-1125393255208476672)
+
+[Bàn luận mở về hệ thống tuyên truyền bôi xấu Hoa Kỳ và triệt hạ ông tổng thống Donald Trump.](https://www.minds.com/realThinhPham/blog/bn-lun-m-v-h-thng-tuyn-truyn-bi-xu-hoa-k-v-trit-h-ng-tng-thn-1125392644571611136)
+
+[Chính sách nô lệ kiểu mới của cánh tả.](https://www.minds.com/realThinhPham/blog/chnh-sch-n-l-kiu-mi-ca-cnh-t-1125391508449767424)
+
+[Kinh bang tế thế (kinh tế) chính là cứu nước, giúp người!](https://www.minds.com/realThinhPham/blog/kinh-bang-t-th-kinh-t-chnh-l-cu-nc-gip-ngi-1125390320507453440)
+
+[Vụ Joe Biden quấy rối tình dục và cánh tả sử dụng lẫn khai thác phụ nữ như thế nào.](https://www.minds.com/realThinhPham/blog/v-joe-biden-quy-ri-tnh-dc-v-cnh-t-s-dng-ln-khai-thc-ph-n-nh-1125389698525290496)
+
 [Nhân tính.](https://www.minds.com/realThinhPham/blog/nhn-tnh-1106163607164715008)
 
 [Những cái bẫy được giăng ra bên ngoài địa ngục Việt Nam.](https://www.minds.com/realThinhPham/blog/nhng-ci-by-c-ging-ra-bn-ngoi-a-ngc-vit-nam-1106154793133178880)
