@@ -19,6 +19,10 @@
 
 ### minds.com
 
+[Chuyện cánh tả hay chụp mũ "hate speech", "racist" giống như từ "phản động" mà cộng sản hay dùng cho người trong nước. Nhóm khủng bố, thù ghét Southern Poverty Law Center chính là một trong những kẻ gây ra nhiều vấn đề nhất hiện nay.](https://www.minds.com/realThinhPham/blog/chuyn-cnh-t-hay-chp-m-hate-speech-racist-ging-nh-t-phn-ng-m-1130903154929913856)
+
+[Làm sao để chế độ cộng sản cai trị đất nước Việt Nam vĩnh viễn? Phần 1. Bán nước hại dân.](https://www.minds.com/realThinhPham/blog/lm-sao-ch-cng-sn-cai-tr-t-nc-vit-nam-vnh-vin-phn-1-bn-nc-hi-1130901946323001344)
+
 [Diễn đàn trái chiều của ông Vũ Linh.](https://www.minds.com/realThinhPham/blog/din-n-tri-chiu-ca-ng-v-linh-1125399489124929536)
 
 [Hoàn cảnh lịch sử của ông Trương Vĩnh Ký.](https://www.minds.com/realThinhPham/blog/hon-cnh-lch-s-ca-ng-trng-vnh-k-1125398312416161792)
