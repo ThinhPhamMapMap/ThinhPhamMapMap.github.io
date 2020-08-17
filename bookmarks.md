@@ -1,23 +1,21 @@
 # Bookmarks của Thịnh Phạm
 
-### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Chúng ta có 7 mục lục. Xin cảm ơn
+### Đây là tập hợp tất cả những bookmarks của Thịnh Phạm nhằm lữu trữ để dễ tra cứu. Mọi người có thể tham khảo thoải mái tại đây. Chúng ta có 6 mục lục. Xin cảm ơn
 
-[1. minds.com](https://thinhphammapmap.github.io/bookmarks.html#mindscom)
+[1. Những bài viết quan trọng (nằm tại minds.com)](https://thinhphammapmap.github.io/bookmarks.html#mindscom)
 
 [2. ThinhPham Timeline](https://thinhphammapmap.github.io/bookmarks.html#thinhpham-timeline)
 
 [3. Political Economics](https://thinhphammapmap.github.io/bookmarks.html#political-economics)
 
-[4. Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.](https://thinhphammapmap.github.io/bookmarks.html#gi%E1%BA%A3i-%E1%BA%A3o-th%E1%BB%9Di-s%E1%BB%B1--gi%E1%BB%9D-gi%E1%BA%A3i-%E1%BA%A3o-b%C3%A1c-nguy%E1%BB%85n-xu%C3%A2n-ngh%C4%A9a-youtube)
+[4. "Viet (classical) liberal-Tập hợp người Việt tự do" hay group VCL](https://thinhphammapmap.github.io/bookmarks.html#vcl)
 
-[5. VCL. Group VCL](https://thinhphammapmap.github.io/bookmarks.html#vcl)
+[5. "Viet Conservative & Classical Liberal" hay group VCCL](https://thinhphammapmap.github.io/bookmarks.html#viet-classical-liberalism)
 
-[6. Viet classical Liberalism. Group VCCL](https://thinhphammapmap.github.io/bookmarks.html#viet-classical-liberalism)
-
-[7. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/vulinh/bookmarks.html)
+[6. Bài viết của ông Vũ Linh](https://thinhphammapmap.github.io/vulinh/bookmarks.html)
 
 
-### minds.com
+### Những bài viết quan trọng (nằm tại minds.com)
 
 [Chuyện cánh tả hay chụp mũ "hate speech", "racist" giống như từ "phản động" mà cộng sản hay dùng cho người trong nước. Nhóm khủng bố, thù ghét Southern Poverty Law Center chính là một trong những kẻ gây ra nhiều vấn đề nhất hiện nay.](https://www.minds.com/realThinhPham/blog/chuyn-cnh-t-hay-chp-m-hate-speech-racist-ging-nh-t-phn-ng-m-1130903154929913856)
 
@@ -7596,90 +7594,6 @@
 [Western Tech - YouTube](https://www.youtube.com/watch?v=7Qjkihvd1b0)
 
 [BÌNH ĐẲNG (công bằng cơ hội) VÀ CÔNG BẰNG (công bằng kết quả) - Tư Bản và Cộng Sản - Cafe Ku Búa](http://cafekubua.com/2017/07/21/binh-dang-va-cong-bang-tu-ban-va-cong-san/)
-
-### Giải Ảo Thời Sự & Giờ Giải Ảo. Bác Nguyễn Xuân Nghĩa. Youtube.
-
-[Mưu thuật của Trung Cộng. Thời Sự Ngày Mai-The Kim Nhung Show trên SBTN tối Thứ Ba mùng ba.](https://www.minds.com/blog/view/861284007140790272)
-
-[Trận Chiến Mỹ-Hoa: Cận Cảnh và Viễn Ảnh. The Kim Nhung Show-Thời Sự Ngày Mai-Thu hình Thứ Hai, phát tối Thứ Ba 19.](https://www.minds.com/blog/view/856904200071036928)
-
-[Lột Mặt Nạ Bắc Kinh. Thời Sự Ngày Mai. Kim Nhung Show tối Thứ Ba 12.](https://www.minds.com/blog/view/853648090136117248)
-
-[Thế Giới Trong Một Tuần Hỗn Loạn. Thời Sự Ngày Mai. Kim Nhung Show trên SBTN tối Thứ Ba mùng năm.](https://www.minds.com/blog/view/851124274612969472)
-
-[Tội ác Xã hội Chủ nghĩa tại Venezuela. Thời Sự Ngày Mai trên Kim Nhung Show tối Thứ Ba 29.](https://www.minds.com/blog/view/848588000186646528)
-
-[Liên Âu có cứu được Iran? Thời Sự Ngày Mai. The Kim Nhung Show.](https://www.minds.com/blog/view/845924735490711552)
-
-[Lỗ Túc Mắt Xanh trong Canh Bạc Mỹ-Hoa. Kim Nhung show.](https://www.minds.com/blog/view/843676230816645120)
-
-[Thống nhất Nam Bắc Hàn? The Kim Nhung Show. SBTN phát hình tối Thứ Ba mùng tám.](https://www.minds.com/blog/view/840862908893601792)
-
-["Rồng Ngâm Váng Khúc Tân Thanh"](https://www.minds.com/blog/view/839464157223161856)
-
-[Mỹ-Hoa Đấu Khẩu. Thời sự ngày mai-The Kim Nhung Show phát hình tối Thứ Ba 27.](https://www.minds.com/blog/view/839129065753976832)
-
-[Thuế Vụ tại Hoa Kỳ và Ác Mộng tại Bắc Kinh. The Kim Nhung Show. Thời Sự Ngày Mai, tối Thứ Ba mùng ba trên SBTN.](https://www.minds.com/blog/view/839128288701374464)
-
-[Bãi Mìn Syria. The Kim Nhung Show, thu ngày 14 phát ngày 17 Tháng Tư.](https://www.minds.com/blog/view/839127860676845568)
-
-[Trung Quốc và Rắn Lột Da. The Kim Nhung Show. Thời Sự Ngày Mai, SBTN phát hình tối Thứ Ba 180410.](https://www.minds.com/blog/view/839127402968293376)
-
-[Viễn Ảnh Triều Tiên. The Kim Nhung Show. Thời Sự Ngày Mai, thu hình ngày 27/4.](https://www.minds.com/blog/view/839126303482765312)
-
-[170819\. Steve Bannon giải nhiệm. Xứ Iran. Vấn đề Bắc Hàn. Món nợ chìm ở Tàu Cộng.](https://www.youtube.com/watch?v=adjKPMG6SUI)
-
-[170820\. Steve Bannon giải nhiệm tiếp theo. Vấn đề Bắc Hàn. Lịch sử về thời Thập Tự Chinh. Hồ sơ BOT ở Việt Nam.](https://www.youtube.com/watch?v=ZzMe90vzYXk)
-
-[170821\. Hiến Pháp phân quyền ở Hoa Kỳ. Truyền thông dòng chính tấn công ông Trump. Chính quyền cộng sản gia tăng tín dụng. Vụ môi sinh ở miền Trung. Vụ Trịnh Xuân Thanh.](https://www.youtube.com/watch?v=xnbVXSt-NjY)
-
-[170822\. Donald Trump tăng can thiệp ở Afghanistan. Tàu chiến Hoa Kỳ gặp tai nạn. Hoa Kỳ can thiệp vào Đông Âu, Trung Đông. Đại hội đảng 19 tại Tàu Cộng. Giải ảo vụ sách sử của chế độ Hà Nội.](https://www.youtube.com/watch?v=MLJ9HaVNbLo)
-
-[170823\. Giờ Giải Ảo. Chiến lược mới của tổng thống Donald Trump tại Afghanistan.](https://www.youtube.com/watch?v=gXS16P49LFI)
-
-[170824\. Giờ Giải Ảo. Nạn độc quyền chân lý về lịch sử.](https://www.youtube.com/watch?v=s7-1P8I2svY)
-
-[170828\. Bão Harvey. Truyền thông cánh tả đánh Donald Trump. Vụ Charlottesville. Vấn đề Bắc Hàn. Vấn đề lý luận của Lenin và Marx.](https://www.youtube.com/watch?v=xUdGLIosC10)
-
-[170829\. Bão Harvey. Ngộ nhận kính vỡ Bastiat. Phân tích về năng lượng, dầu khí. Vấn đề Bắc Hàn, Nhật Bản, Nam Hàn. Vấn đề Bắc Cực. Bình luận về tin đồn. Vấn đề mậu biên và biên giới, thiểu số ở Việt Nam. Sự can thiệp của Tàu Cộng ở Việt Nam.](https://www.youtube.com/watch?v=WOnZ-DtXpqU)
-
-[170830\. Bão vào Hoa Kỳ và Trung Quốc. Phân tích về năng lượng, dầu khí. Bàn về "sự phản hồi" của thiên nhiên. Vấn đề Bắc Hàn. Điều kiện về địa dư. Món nợ ghê tởm.](https://www.youtube.com/watch?v=cPYsf8jCaQc)
-
-[170831\. Giờ Giải Ảo. Món nợ ghê tởm.](https://www.youtube.com/watch?v=psjKs6HCnDQ)
-
-[170904\. Giờ Giải Ảo. Bắc Hàn thử nghiệm thành công bom khinh khí, bom H.](https://www.youtube.com/watch?v=aQzTpdbe4sU)
-
-[170905\. Thời tiết và bão Irma. Chính trường Hoa Kỳ, hồ sơ ngân sách. Họp thượng đỉnh BRICS. Vấn đề Bắc Hàn sau vụ thử bom hạch tâm. Phân tích về bộ sử của cộng sản Hà Nội.](https://www.youtube.com/watch?v=fNIfGUdI4Aw)
-
-[170906\. Bão vào Hoa Kỳ. Vấn đề DACA. Vấn đề Bắc Hàn. Phân tích về Tàu Cộng cướp cá. Chính quyền cộng sản Hà Nội mua than đá của Bắc Hàn. Sự độc ác của chế độ Hà Nội. Độc tài và bọn trí thức cánh tả.](https://www.youtube.com/watch?v=KHMquToK6wk)
-
-[170907\. Giờ Giải Ảo. Bành trướng của Tàu Cộng (Trung Quốc). Vụ tập trận của Tàu Cộng.](https://www.youtube.com/watch?v=hxbq8RK3xRw)
-
-[170911\. Thiên tai và kì họp quốc hội Hoa Kỳ. Donald Trump thỏa hiệp với đảng Dân Chủ về ngân sách. Nga can thiệp mạnh vào Syria. Gặp thượng đỉnh Nhật Bản và Ấn Độ. Bàn về đại hội Đảng ở Tàu Cộng. Bác Nghĩa nói về BBC Việt Ngữ và quyền tự do ngôn luận, bàn bạc.](https://www.youtube.com/watch?v=_njfmQY168g)
-
-[170912\. Cải cách thuế vụ, kinh tế, xã hội của Hoa Kỳ. Chương mục, account. Về nền dân chủ của Hoa Kỳ, Alexis de Tocqueville. Vấn đề Bắc Hàn. Chuyện hỗn loạn, xã hội đen ở Việt Nam.](https://www.youtube.com/watch?v=ZEqlrssahoE)
-
-[170913\. Vấn đề thuế khóa, ngân sách của Hoa Kỳ. Ngộ nhận kính vỡ Bastiat. Thủ tướng Malaysia qua thăm Hoa Kỳ. Thế vận hội tại Nam Hàn. Bộ phim tuyên truyền của cánh tả bóp méo về chiến tranh Việt Nam. Hiện tượng đầu cơ kiến thức và sự quan trọng của tự do, phổ biến thông tin.](https://www.youtube.com/watch?v=9A5uTgymOW4)
-
-[170914\. Giờ Giải Ảo. Phản chiến, ngụy hòa, và công trình giải ảo của Giáo sư Keith W. Taylor cùng bà Olga Dror.](https://www.youtube.com/watch?v=STEC8CZXsc4)
-
-[170918\. Tổng thống Donald Trump kêu gọi cải tổ Liên Hợp Quốc. Bình luận về trò bịp trong phim The Vietnam War của Ken Burns. Vụ xung đột ở Miến Điện với sắc dân Bengali/Rohingya. Bất ổn ở Đông Á và sự thật về Hồ Chí Minh.](https://www.youtube.com/watch?v=yhtzFsWkCIw)
-
-[170919\. Bão Maria. Sự thay đổi liên tục của nền sản xuất Hoa Kỳ. Diễn văn của tổng thống Donald Trump đọc trước Liên Hợp Quốc. Vấn đề Bắc Hàn. Vụ sứ quán Hoa Kỳ ở Cuba. Suy ngẫm về vận mệnh của Việt Nam.](https://www.youtube.com/watch?v=H-dDkIktOno)
-
-[170920\. Chuyện bão tại Hoa Kỳ. Hằng tâm, hằng sản của người Mỹ. Quyết định của dân biểu. Lạc quan tếu, hốt hoảng bậy. Phân tích chính trường Hoa Kỳ. Diễn văn của tổng thống Donald Trump tại Liên Hiệp Quốc. Chuyện Việt Nam, ngu và dốt. Nước Mỹ không hiểu nhiều về thế giới bên ngoài.](https://www.youtube.com/watch?v=9sMOOOm1xiE)
-
-[170921\. Giờ Giải Ảo. Hoa Kỳ Dị.](https://www.youtube.com/watch?v=xdCB7hM2rAI)
-
-[170923\. Giờ Giải Ảo. Giáo Dục & Đào Tạo. Phần 1.](https://www.youtube.com/watch?v=Dd0scuXGd_I)
-
-[170923\. Giờ Giải Ảo. Giáo Dục & Đào Tạo. Phần 2.](https://www.youtube.com/watch?v=L0izCd97CZ4)
-
-[170925\. Từ Nguyễn Xuân Anh đến Trịnh Xuân Thanh. Quan Hệ Việt Hoa. Bế Tắc Chính Trị Mỹ](https://www.youtube.com/watch?v=tsaVOpWMDLY&t=35s)
-
-[170925\. Bắc Hàn, Iran thử nghiệm hỏa tiễn. Bế tắc chính trị Mỹ.](https://www.youtube.com/watch?v=oDWcdXtbaVc)
-
-[Giải Ảo Thời Sự-Nước Đức băn khoăn-Âu Châu ngỡ ngàng-170926](https://www.youtube.com/watch?v=NvIiF7Cz-j0)
 
 ### VCL
 
